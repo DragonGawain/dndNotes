@@ -1,0 +1,5 @@
+-   DM can you move me, I'm under the dead horse? - Mara, session 2 (jan 24, 2025)
+-   Can I see how dead the dead Vif is? - Rattamis, Session 2 (jan 24, 2025)
+-   We'll start with the nest of hookers. - Asteria, Session 4 (Feb 21, 2025)
+-   If you think pulling is a good idea to get the squishies out, then go for it. - Vevinier, Session 4 (Feb 21, 2025)
+-   Sorry, I'm still learning my name. - Tyrah, Session 4 (Feb 21, 2025)

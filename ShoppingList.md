@@ -1,0 +1,2 @@
+-   Hunting traps
+-   Torch + oil
