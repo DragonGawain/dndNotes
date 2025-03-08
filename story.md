@@ -77,3 +77,4 @@ No long rest at the end of session, ended outside of the tavern. We arrived back
 -   Tyrah plans to use second wind next turn
 -   There are 12 younglings that we have left to kill
 -   Tyrah went unconcious and was brought back three times, so madness!
+-   There is a javelin of mine on the ground
