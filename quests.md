@@ -42,4 +42,4 @@
     -   Special notes: caves will have tight spaces in the tunnels.
         -   Since we're in a cave, we will always be seen (tremor sense)
         -   They fight best in pack (pack tactics) (better flanking, if two of them are next to you, they have advantage)
-    -   Status: incomplete
+    -   Status: IN PROGRESS
