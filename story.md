@@ -78,3 +78,13 @@ No long rest at the end of session, ended outside of the tavern. We arrived back
 -   There are 12 younglings that we have left to kill
 -   Tyrah went unconcious and was brought back three times, so madness!
 -   There is a javelin of mine on the ground
+
+## Session 6 - Mar 14, 2025
+
+Very short session due to life reasons and people not showing up (they had valid reasons). Garrus left due to life things (and will never be spoken of again). Combat quest ended early. We didn't get to complete the combat event.
+Asteria - emerald
+Me - amethyst
+tyrah, alma, vevinier - blue saphire
+
+Ogo and Alma both got a weapon from the reward.
+We all level up to level 2.
