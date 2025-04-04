@@ -88,3 +88,5 @@ tyrah, alma, vevinier - blue saphire
 
 Ogo and Alma both got a weapon from the reward.
 We all level up to level 2.
+
+## Session 7 - Apr 02, 2025

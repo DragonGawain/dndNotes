@@ -15,7 +15,7 @@
 
 # Spite
 
--   In about two years IRL, when we go to the elemantal plane of fire, Garrus will meet an older tiefling, that breaks the lore of older tieflings being more powerful (Session 5, March 07, 2025, 8:43 PM) (yes, this note is pure spite)
+-   In about two years IRL, when we go to the elemantal plane of fire, ~~Garrus~~ will meet an older tiefling, that breaks the lore of older tieflings being more powerful (Session 5, March 07, 2025, 8:43 PM) (yes, this note is pure spite)
 
 # General
 
