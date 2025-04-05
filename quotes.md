@@ -3,3 +3,4 @@
 -   We'll start with the nest of hookers. - Asteria, Session 4 (Feb 21, 2025)
 -   If you think pulling is a good idea to get the squishies out, then go for it. - Vevinier, Session 4 (Feb 21, 2025)
 -   Sorry, I'm still learning my name. - Tyrah, Session 4 (Feb 21, 2025)
+-   Am I leveled up? - Distia, Session 7 (Apr 04, 2025)

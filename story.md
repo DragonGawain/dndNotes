@@ -82,11 +82,34 @@ No long rest at the end of session, ended outside of the tavern. We arrived back
 ## Session 6 - Mar 14, 2025
 
 Very short session due to life reasons and people not showing up (they had valid reasons). Garrus left due to life things (and will never be spoken of again). Combat quest ended early. We didn't get to complete the combat event.
-Asteria - emerald
-Me - amethyst
+Rattamis, Distia, Asteria - emerald
+Ogo - amethyst
 tyrah, alma, vevinier - blue saphire
 
 Ogo and Alma both got a weapon from the reward.
 We all level up to level 2.
 
 ## Session 7 - Apr 02, 2025
+
+-   Asteria not here for this session.
+-   We went back to the guild and in character knew we achieved power level two.
+-   Ogo and Vevinier went to school to learn some new schools of magic.
+-   We spent a day shopping/in school. The next morning, as we head back into town, we hear the sounds of combat.
+-   New person! Ryuzen Ko, a fellow Enkoh! (monk) We find Ryuzen in combat with 3 drake bunnies, as well as an alhpa drake bunny. Combat ensues!
+-   Upon defeating the alpha bunny drake, the last surviving small one enlarges, as it will soon evolve into an alpha (it got big, and in 1 turn, if not killed, it will become an alpha). With a great team effort, we slay the evolving drake bunny before the evolution is complete!
+-   Vevinier deduces that the drake bunnies are a mutation, likely the cause of an experiment. They are from exiled experiments from the underdark (monstrosities).
+-   These are the third underdark creature that we have seen (derro pirates, freaky Noctis look-a-like creature that destroyed the tavern, and now the drake bunnies)
+-   quest rewards:
+    -   500 gp (all)
+    -   Alma: none
+    -   Asteria (absent)
+    -   Distia: wonderous item
+    -   Ogo: none
+    -   Rattamis: armor => I bought it off of Rattamis in exhange for 60% of gold rewards from this quest and the next 3 quests
+    -   Ryuzen: wonderous item
+    -   Tyrah: none
+    -   Vevinier: wonderous item
+-   Silverpaw sits down with us for our meal and gives us some lore on the tavern destroying underdark creature. There is more to the creature than they had originally thought. The creature is supposed to be extinct! It was a little bit less than 1000 years ago, that creature was a specieis of Dhampirs. The Dhampirs were humanoids that lived on the human continent but were heavily feared due to their unique eating habits. Dhampirs drink blood. The human killed all the Dhampirs. The peasents were tired of their cattle being killed (Dhampirs were kind enough to not attack the humans themselves). The peasents had an uprsising against the queen, and before she could respon, all the Dhampirs were eleminated, or so we thought. The Dhampirs are shapeshifters. Two ways to spot them: 1, they are shapeshifters, though many others are so that's not a big giveaway. 2: their eyes are red or pink. That is all we know as all the history books on them have been lost.
+-   How were the peasents able to kill such powerful creatures? Power scaling was very different 1000 years ago, also it's very easy to kill someone when they are asleep.
+-   The Dhampirs are not inherently evil and they should not be killed on sight.
+-   Vevinier points out that we have seen many underdark creatures of late, and asks Silverpaw if we should be worried about an underdark uprising. Vevinier notices a rise in pitch when Silverpaw denies a potential problem, despite Silverpaw's steady eyes as she replies. Silverpaw hurries back to work at that point.Vevinier does **NOT** share that information.

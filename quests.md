@@ -57,3 +57,38 @@
         -   Since we're in a cave, we will always be seen (tremor sense)
         -   They fight best in pack (pack tactics) (better flanking, if two of them are next to you, they have advantage)
     -   Status: COMPLETE
+
+### Session 7
+
+-   ~~Guild quest: hunt down some creatures that are disturbing travel on the main road~~
+-   Bunny drakes - deviously cute
+-   Speed of a rabbit, claws of a drake
+-   Tend to attack solo travelers, but will attack groups at night
+-   Special notes:
+    -   Pack tactics
+-   Reward:
+    -   500 gp per person
+-   Status: COMPLETE
+
+### Panthragoon Hunt Needed!
+
+-   Location: Shadowpine Forest, east of Blackshire
+-   Description: A group of deadly Panthragoons has been prowling the forests, preying on novice adventurers and lone travelers. These formidable creatures, a hybrid of panther and dragon, combine the stealth and agility of a large feline with dragon-like resilience and elemental breath attacks. They have become a serious hazard for anyone journeying through Shadowpine Forest.
+-   Quest Objectives: Locate and eliminate the Panthragoons before they cause further harm. A Panthragoon scale or claw should be provided to the outpost for confirmation of the job’s completion.
+-   Reward:
+
+    -   500 gold pieces
+
+-   Special Instructions:
+
+    -   Panthragoons are cunning hunters and will ambush prey from the shadows. Be prepared for sudden attacks and try to counter their stealthy tactics. Their elemental breath can vary—fire, poison, or frost—so plan accordingly for a range of elemental defenses.
+
+-   Special question notes
+    -   They are not from the underdark (Vevinier)
+    -   Special way to get past their stealth? They stealth when hunting or retreating (Tyrah)
+    -   They have dark vision (Ryuzen)
+    -   There will be 5 (1 alpha, four underlings) (Rattamis)
+    -   The underlings have no damage weakneses (Ogo)
+    -   They can choose which element they use per attack (freebie! - Distia)
+    -   They are pack animal (pack tactitcs? unclear) (Distia)
+    -   Does the alpha have an ability triggered by the death of an underling? -> yes (Alma)
