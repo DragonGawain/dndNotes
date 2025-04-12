@@ -89,7 +89,7 @@ tyrah, alma, vevinier - blue saphire
 Ogo and Alma both got a weapon from the reward.
 We all level up to level 2.
 
-## Session 7 - Apr 02, 2025
+## Session 7 - Apr 04, 2025
 
 -   Asteria not here for this session.
 -   We went back to the guild and in character knew we achieved power level two.
@@ -112,4 +112,35 @@ We all level up to level 2.
 -   Silverpaw sits down with us for our meal and gives us some lore on the tavern destroying underdark creature. There is more to the creature than they had originally thought. The creature is supposed to be extinct! It was a little bit less than 1000 years ago, that creature was a specieis of Dhampirs. The Dhampirs were humanoids that lived on the human continent but were heavily feared due to their unique eating habits. Dhampirs drink blood. The human killed all the Dhampirs. The peasents were tired of their cattle being killed (Dhampirs were kind enough to not attack the humans themselves). The peasents had an uprsising against the queen, and before she could respon, all the Dhampirs were eleminated, or so we thought. The Dhampirs are shapeshifters. Two ways to spot them: 1, they are shapeshifters, though many others are so that's not a big giveaway. 2: their eyes are red or pink. That is all we know as all the history books on them have been lost.
 -   How were the peasents able to kill such powerful creatures? Power scaling was very different 1000 years ago, also it's very easy to kill someone when they are asleep.
 -   The Dhampirs are not inherently evil and they should not be killed on sight.
--   Vevinier points out that we have seen many underdark creatures of late, and asks Silverpaw if we should be worried about an underdark uprising. Vevinier notices a rise in pitch when Silverpaw denies a potential problem, despite Silverpaw's steady eyes as she replies. Silverpaw hurries back to work at that point.Vevinier does **NOT** share that information.
+-   Vevinier points out that we have seen many underdark creatures of late, and asks Silverpaw if we should be worried about an underdark uprising. Vevinier notices a rise in pitch when Silverpaw denies a potential problem, despite Silverpaw's steady eyes as she replies. Silverpaw hurries back to work at that point. Vevinier does **NOT** share that information.
+
+## Session 8 - Apr 11, 2025
+
+-   Asteria not here for this session as well.
+-   We awake to find our sending stones ringing! The monthly necromancy student is at it again!
+-   On our way to the skeleton hunt, Vevinier informs us that Silverpaw was maybe lying about a potential Underdark uprising.
+-   Very eerie and dark combat setting. I can't see any enemies, but I hear the long, extended breaths of.. _something_.
+-   Turns out, there were three skeleton minotaurs! Tyrah, Rattamis, Ryuzen and I fight one of them (I miss my attack though). Ryuzen discovers that they're weak to bludgeoning damage. The second minotaur attempts to charge me (revenge for the first charge which missed!), but it got a nat 1 and killed the other skeleton minotaur. Distia, Alma, and Vevinier deal with the other one. Distia turned it into a glowing skeleton minotaur with Starry Wisp, so it went after them (glow didn't last for long though).
+-   Then I crit, dealing a total of 59 damage in a single hit (that was our third nat 20, after they minotaurs got a nat 1 and attacked each other, so we've been pretty lucky this combat..)
+-   After we defeat the trio of minotaurs, we encounter a trio of student (Bob, Billy, and Sarah). We learn that Lira (the necromancy student) summoned a Skeletal Naga, which then summoned the three minotaurs, and also kidnapped Lira. We also learn that Lira is the next queen of the Kitsune.
+-   We arrive at the place where the three pointed us towards and notice that there's a lot of light..
+-   Bone Naga boss scary. Also we have to kill it in one turn or it'll kill Lira. Also Bone Naga boss scary, but Distia could maybe 1 shot it all by herself!! (icy crown has some special powers..)
+-   I got the idea to use Santuary on Lira, but wasn't close enough, so Distia's plan got delayed by a turn.
+-   I missed my attack (nat 1), Ryuzen tried to help Lira, and failed. Distia casts her spell, and the Naga succeeds on its save, so it only took half damage. Vevinier missed her prepared spell, Rattamis missed their attack, Alma _also_ got a nat 1 and hit Tyrah.
+-   And then we somehow manage to kill it.
+-   quest rewards:
+
+    -   500 gp (all)
+    -   500 gp (total, team chest)
+    -   Alma: wonderous item
+    -   Asteria (absent)
+    -   Distia: none
+    -   Ogo: none
+    -   Rattamis: none
+    -   Ryuzen: none
+    -   Tyrah: none
+    -   Vevinier: none
+
+-   We go and do some shopping, and Vevinier has a special relationshipwith the owner of the Umbragen Accord shop (the shopkeeper is also a shadow elf)
+-   We also get a special deal at the wolfkin shop (cause of Tyrah)
+-   As we wrap up our shopping, we get a message on the sending stone: "We have secured lodging for you outside of the dungeons." The name of the new tavern is "The Gilded Bog".

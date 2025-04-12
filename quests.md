@@ -74,6 +74,7 @@
 
 -   Location: Shadowpine Forest, east of Blackshire
 -   Description: A group of deadly Panthragoons has been prowling the forests, preying on novice adventurers and lone travelers. These formidable creatures, a hybrid of panther and dragon, combine the stealth and agility of a large feline with dragon-like resilience and elemental breath attacks. They have become a serious hazard for anyone journeying through Shadowpine Forest.
+
 -   Quest Objectives: Locate and eliminate the Panthragoons before they cause further harm. A Panthragoon scale or claw should be provided to the outpost for confirmation of the job’s completion.
 -   Reward:
 
@@ -92,3 +93,19 @@
     -   They can choose which element they use per attack (freebie! - Distia)
     -   They are pack animal (pack tactitcs? unclear) (Distia)
     -   Does the alpha have an ability triggered by the death of an underling? -> yes (Alma)
+
+## Session 8
+
+### Undead Skeleton Army in the Necromancy Halls!
+
+-   Location: Blackthorn Academy of Necromancy, East Wing
+
+-   Description: A necromancy student, Lira Ashwind, has accidentally summoned a small army of undead skeletons while practicing advanced necromantic magic. The skeletons are now roaming the halls, causing havoc and blocking access to vital areas. The Academy is seeking brave adventurers to neutralize the undead threat and safely retrieve Lira.
+
+-   Quest Objectives: Enter the East Wing, eliminate the rogue skeletons, and safely escort Lira Ashwind out of the area. She is unharmed but unable to dispel the skeletons herself.
+
+-   Reward:
+    -   500 gold pieces
+    -   additional rewards for bringing Lira back safely. (Additional 500 gp)
+-   Special Instructions:
+    -   Beware of magical traps and necromantic wards throughout the East Wing. The skeletons are imbued with protective spells, so enchanted or bludgeoning weapons may be more effective. Do your best to minimize damage to academy property!
