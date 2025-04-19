@@ -23,10 +23,12 @@
 
 ## Session 3
 
--   ~~Main quest: Derro pirates~~
+### ~~Main quest: Derro pirates~~
+
 -   ~~Emergency side quest - dire wolves spotted near our location. They have defeatead a party of 4. There are 3 of them of varrying power.~~
 
--   Side quest: tavern cooking.
+### Side quest: tavern cooking.
+
     -   In order to get Lyssara Silverpaw's trust in the kitchen, I need to go to the market and purchase some cook's utensils (they cost 1 gold)
 
 ## Session 4
@@ -105,3 +107,18 @@
 -   Special Instructions:
     -   Beware of magical traps and necromantic wards throughout the East Wing. The skeletons are imbued with protective spells, so enchanted or bludgeoning weapons may be more effective. Do your best to minimize damage to academy property!
 -   Status: COMPLETE
+
+## Session 9
+
+### ~~Emergency quest: Evocation Aberrations Rampaging Through Campus!~~
+
+-   Location: Lyceum of the Arcane Arts, Evocation Halls
+-   Description: A disastrous experiment by an Evocation student, Jasper Moone, has unleashed unstable Evocation Aberrations throughout the college. These wild magical constructs are discharging dangerous energy blasts and elemental attacks, endangering students, faculty, and priceless artifacts. The aberrations must be contained before they cause irreversible damage or spread to the nearby town.
+-   Quest Objectives: Enter the Evocation Halls and neutralize all aberrations. Assist Jasper in stabilizing the remaining magical energy if possible. Report to Headmistress Aldara once the threat is contained.
+
+-   Reward:
+
+    -   500 gold pieces.
+
+-   Special Instructions: These aberrations vary in elemental types—fire, ice, lightning, and arcane—each with unique attacks. Use caution and plan for versatile defenses. Take care to avoid causing additional damage to the delicate wards and artifacts within the halls.
+-   STATUS: COMPLETE

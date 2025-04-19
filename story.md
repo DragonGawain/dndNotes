@@ -143,4 +143,79 @@ We all level up to level 2.
 
 -   We go and do some shopping, and Vevinier has a special relationshipwith the owner of the Umbragen Accord shop (the shopkeeper is also a shadow elf)
 -   We also get a special deal at the wolfkin shop (cause of Tyrah)
--   As we wrap up our shopping, we get a message on the sending stone: "We have secured lodging for you outside of the dungeons." The name of the new tavern is "The Gilded Bog".
+-   As we wrap up our shopping, we get a message on the sending stone: "We have secured lodging for you outside of the dungeons." The name of the new tavern is "The Gilded Bough".
+
+### Session 9 - Apr 18, 2025
+
+-   Pre-session: Long term goal talk
+-   Distia not here (? no message about it, but wasn't here for session..)
+-   Vevinier leaves the party due (player left the campaign)
+-   We are served shadow wine with our meal (imagine coke, but spicy. Like, jalapeno powder) (it is non-alcoholic)
+-   Asteria goes to have a chat with 3 sun elves.
+-   Alma feels like they're being watched from above, and looks up, just to see a pink sparkle disappear.
+-   Velvyra (owner) hasn't moved since we entered the tavern, and her irises are white.
+-   I learn that she is blind.
+-   I ask her if she knows of the current state of the Underdark, and she instead offers to answer any one question from each of the party memebers. Each question is asked privately.
+-   I ask what evils have been attempting to invade this plane (the plane that we live in)
+-   She answers as follows:
+    -   West, underdark queen bringing dhampirs back
+    -   South, Demons against tieflings
+    -   North, fallen angels
+    -   East, nothing as of yet
+-   She then follows up by saying that she is disappointed that I did not ask the right question.
+-   Asteria asked her question next. She elects to not share her question/answer with the party yet, appearing somewhat daze.
+-   Rattamis asked how to gain the favor of his queen.
+    -   He was told that he will need to open up a portal to his homeland.
+-   Ryuzen asked how to return the Enkoh people back to the Feyland.
+    -   His character does not really remember the answer.
+-   Tyrah asked when we will meet our next major foe.
+    -   The answer was that we will meat a lich under the moonlight.
+-   Lastly, Alma elected to not share their question/answer.
+
+-   Asteria walks into the taver (?). Velvyra's eyes are now amber and she seems confused, and she asks Asteria, who just walked in, to approach. Velvyra asks Asteria "where am I?", to which Asteria replies "The Gilded Bough" (name of the tavern).
+-   V asks who owns it, A: you do
+-   V: What is this tavern? A: This is your refuge, a neutral territory for tired travelers to stop and rest.
+-   V: I see. It feels like I've been standing ehre for a while. Do you know how long I've been standing here? A: Uncertain, but for as long as I have been here.
+-   Velvyra begins to wander. Asteria asks if she needs any help/assistance, which causes her to pause.
+-   V: What year is it? A: 2025 (IRL year drop)
+-   V: That can't be possible. I returned from Celestia in 2015. A: I'm sorry that you seem to have lost time, but in that time, you have seemed to done great things. I hope that makes you feel better.
+-   V: It does make me feel better. All I have is my faith as a Paladin to my goddess (dark goddess, she is a Drow). A: Something something "may your goddess be blessed".
+-   Velvyra begins to wander once more.
+-   Alma asks what happened with the whole memory loss thingy. Asteria know that speaking about that whole conversation, along with the info she got from her private question, would be best communicated in private. Asteria communicates that it'll be explained later.
+
+-   Rattamis goes to dance to the music, and feels the gaze of a rather lustful sun elf (who gave Asteria an upgrade in their earlier discussion).
+-   We go up to Asteria's room to discuss things that should not be spoken about in public. Alma stays behind.
+-   Asteria elects to not share much until we are outside of city limits, but does share that the bartender is OK. And that the owner plays a very important part in the grand scheme of things. We should be on the lookout for a full moon and a lich.
+
+-   We take a long rest (sleep), and wake up to emergency quest time (again, yay!) Evocation student disaster this time.
+
+-   On the way to deal with the disaster, Asteria shares the rest. Asteria's question was about why Velvyra started the Gilded Bough, and what part the moon played. Asteria was whisked away and learnt that Velvyra is a vessel for the Dark Mother (dragon goddess of the Drow).
+-   Asteria was told to look for the bastion under the full moon in the darkness, and that we would need to defeat the lich in the basement.
+
+-   Combat time! We arrive at the evocation school and do combat things. (DM said some ominous things like "time to die" and "good luck". Also "no one will die tonight, but we will wish that we had").
+-   Tyrah, Alma, and I all immediately become paralyzed. (the rest of the party is stealthed and not spotted)
+-   I then get stunned for, hem hem, 90 turns (short term madness). And therefore, since I'm stunned, cannot take any actions.
+-   The enemies we fought didn't really attack us, but they did just continuously paralyze the whole party. And cause madness.
+-   Enemies finally started attacking after every party member was paralyzed.
+-   DM is kind and broke my stun 85 turns early! (yay!)
+-   Also god damn these paralyze guys are suuuuper annoying.
+-   I then instantly got paralyzed again. Sad.
+-   Oh yeah, also, they seem to be immune to purely physical attacks.
+-   I then entered a cycle of getting paralyzed, and unparalyzed, then paralyzed, then unparalyzed, etc a few times.
+-   After 12 rounds, we find the student who snaps the aberations out of existance.
+-   We each get lots of money (1000 gp each), and we meet Mrs. Silverpaw.
+-   Silverpaw tells us about King Midas.
+-   The animal people all come from the Feywild. There's a bloody war on the animal kingdom continent. When all beastkin arrived to the mortal plane, we were banished to what is now the animal kingdom. But there was an issue. In each city, there is a population of roughly 1 million (per species). At the time of banishment, there were about 1 billion of each species. There simply was not enough space or resources on the contenent, and thus ensued the Billion Death War. This war was caused by a king. In the feywild, a king of all species was chosen. King Midas was crowned at noon. At 5:00 pm, all beastkin were transported to the mortal plane. We don't know what happened to cause this interspecies-wide banishment, but it sure did.
+-   Tyrah went mad and started loving books, so Silverpaw drew an S on her forehead. Tyrah went unconscious and a dragon mark appeared. That mark is why no males can become leaders. Only females have the mark, and it makes them stronger and stuff. Ask a god for more info. Silverpaw let go of Tyrah foreheads, and she regained consciousness. With enough faith, you can speak to the gods in their temples.
+-   At each school, there is a shrine to each of the gods. That shrine is not the temple. Only once you have proven yourself to the god can you enter the temple.
+-   (At this point, I learn that Cluckington is dead, killed for giving out info about the bastion)
+-   Asteria asks Silverpaw about the bastion, and everyone, except me cause I rolled too high, feels a presence watching us. Rattamis instantly casts detects magic, and discovers that a scry spell had been cast. Silverpaw, with great visibly showing fear, stands up and silently leaves the room.
+-   Bonus rewards:
+    -   Alma: none
+    -   Asteria: none
+    -   Distia: absent
+    -   Ogo: none
+    -   Rattamis: none
+    -   Ryuzen: none
+    -   Tyrah: Wonderous item (crit!)
+    -   Vevinier: none
