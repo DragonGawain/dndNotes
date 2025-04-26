@@ -4,3 +4,5 @@
 -   If you think pulling is a good idea to get the squishies out, then go for it. - Vevinier, Session 4 (Feb 21, 2025)
 -   Sorry, I'm still learning my name. - Tyrah, Session 4 (Feb 21, 2025)
 -   Am I leveled up? - Distia, Session 7 (Apr 04, 2025)
+-   Holy shit I need therapy - Distia, Session 10 (Apr 25, 2025) (This was the first session where we had all the madness effects)
+-   Wait, we're food?! - Cows, Session 10 (Apr 25, 2025)

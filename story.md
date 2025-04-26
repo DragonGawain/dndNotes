@@ -16,7 +16,7 @@
 
 -   We awake from our long rest to the sending stones we received from the guild ringing. An emergency has occured! Some Derro pirates are doing piratey things. We were warned that Derro pirates will simply flee if they feel endangered.
 -   Also Distia took a sick day and isn't with is this session. Before we set out to vanquish the pirates, we go shopping! We find the hidden pact store, full of very expensive items. We got another message on the sending stone that some dire wolves have beaten a party of 4. Three of the party returned, while the leader became the dire wolf alpha's dinner snack. After a team vote, we set out to vanquish the dire wolves. After killing the wolves, we took a short rest, and Vif foraged for some berries. Whilst in combat with the pirates, the Derro captain melted Mara with acid, fully killing him. RIP Mara. Mara's final words were dissing Vif.
--   People got some treasure (I got a fancy shield, Vif a cool dagger, Alma (formerly Mara) some armor, and Ratmatra also got armor. Drund got 94 copper, Rattamis got 34 copper.)
+-   People got some treasure (I got a fancy shield, Vif a cool dagger, Alma (formerly Mara) some armour, and Ratmatra also got armour. Drund got 94 copper, Rattamis got 34 copper.)
 -   We returned to the adventurers guild (with Alma in tow) to find it full of some 20 odd parrties. (Distia is still sick for this session, so we had some trouble getting in). Due to the overflowing guild, only Alma (the new female in the party) is allowed in. After the door slams in the face of the male members, I knock on the door twice, only to see a glyph of warding appear on the door. I take a step back. We were eventually let into the guild (thanks to completing the side quest of slaying the dire wolves) at which point we learnt that the quest to slay the Derro pirates was a grand failure across the board. Our rewards for completing the side quest was that Drund and Rattamis each got a weapon. (the rest of us failed our chance to get an item (had to get a 5 or lower this time)).
 
 -   Also Mara (now Alma) started playing with a voice changer and god damn that thing is uncanny as all hell.
@@ -105,7 +105,7 @@ We all level up to level 2.
     -   Asteria (absent)
     -   Distia: wonderous item
     -   Ogo: none
-    -   Rattamis: armor => I bought it off of Rattamis in exhange for 60% of gold rewards from this quest and the next 3 quests
+    -   Rattamis: armour => I bought it off of Rattamis in exhange for 60% of gold rewards from this quest and the next 3 quests
     -   Ryuzen: wonderous item
     -   Tyrah: none
     -   Vevinier: wonderous item
@@ -219,3 +219,50 @@ We all level up to level 2.
     -   Ryuzen: none
     -   Tyrah: Wonderous item (crit!)
     -   Vevinier: none
+
+### Session 10 - Apr 25 2025
+
+-   We awake from our long rest in the tavern (with the entire party present for once!) and Distia's sensing stone goes off with the [Panthrgoon quest](./quests.md#panthragoon-hunt-needed)
+-   We start off the session with some RP, with a focus on the permanent madness' that we got last session (except for Distia, who got away unscathed being absent last session, and thus avoided getting afflicted with a permanent madness).
+-   The discussion is uhh.. very funny but too complex to write down. (madness talk)
+-   After being urged to go to the school of Abjuration to try to get our madness' fixed, we make our way there with some more.. colourful discussion.
+-   Insert laughter and silliness hear, as Distia leads the entire party like a family of little ducklings.
+-   Distia is fine, Asteria feels fine (therapy suggested), Alma sees birds, Tyrah is obsessed with a book and wants to cast fireball, Ogo is impressing to everyone that he's glowing (literally!), Rattamis sees bugs crawling all over everybody, Ryuzen is very emotional.
+-   We eventually find our way to the Remove Curse clinic. The clerk at the Remove Curse clinic suggests Break Curse be cast on Ogo, Rattamis, Tyrah, and Alma. They suggest therapy for Ryuzen.
+-   After having Remove Curse cast on the four of us, nothing changed. The clerk is confused and apologizes, but doesn't know how to fix us. The only suggestion they have is having the Wish spell cast upon us. Wish is 1000 platinum coins per person. The clerk once more recomends therapy to those it might help.
+-   Distia gets another ping on her sending stone, asking if they should give the panthragoon quest to a different party. We decide to take the quest. When we arrive at the quest site, night is falling, so we decide to camp out for the night and attack in the morning.
+-   We do night watch. Distia summons an owl to help keep watch. Which it does, but, as ordered, it didn't wake anyone up when it noticed the panthragoons. After the third watch, Asteria and Distia awake from their trances, at which point Distia's owl tells Distia that the party has been watched. Alma also notices the panthragoons at that time.
+-   Something something DM warns us to not fight, because the cats will cause a TPK. Thankfully, we have druid, and a party memeber who has the Speak With Animals spell, so hopefully this will be the first peaceful encounter..
+-   Combat rounds begin!
+-   Distia and Rattamis talk with the cats. Humans are hunting their food, making them not so happy. They claim to have never attacked a 'two legged creature' before. They demand 10,000 pounds of meat, or they will hunt the party. We could also try to repopulate the forest with cows.
+-   We agree to give them 10 cows a week, for the next 10 weeks. (1 cow costs 120 gold)
+-   Alpha panthragoon also tells us that the humans who have been hunting the wild cows can be found downriver.
+-   We went to the town and spoke with the village elder about the Panthragoons (cats) (Town is Westvale)
+-   The cows started going missing. Cats started stealing food about the same time that food imports stopped due to the Derro Pirates. The pirates caused a food shortage. A lot of the food that would be sent to the guilds had to stop, because they had no food to send. The guilds had to resort to eating monsters. One of the two villages supplying food for the whole contintent. Them not being able to get imports led to them hunting a lot more.
+-   Food trade will return to normal (supposedly) after the winter, so they only need to deal with increased hunting until the end of winter.
+-   The central continent feeds the colleges as well.
+-   An adventurer (bird) came to help deal with the problem. They should be in the pastures. Kenku. Named Boris. Spellcaster. Find him in the pastures, he might have more info for us.
+-   Elder once more insists that we remove the kitties, saying that they are such a nuisance.
+-   We return to the pastures to search for this Kenku. We find Boris pretty easily.
+-   Something something Alma has been replaced with Boris...?
+-   Around 50 cows were taken away. "They" came like shadows and whisked them away.
+-   Shadows took the cows. They shadows appeared out of nowhere, and left very discrete marks in the ground. Traces in the sand.. in this pasture of grass.
+-   Also Boris is talking in a very dramatic way.
+-   The shadows had whiskers. And the glistened in the light.
+-   Boris joins the party! (do do-do doo!)
+-   Boris' god is Che'dar (god of cheese)
+-   Boris leads the way, guided by Che'dar. (?) We arrive at Blackshire, the town of thieves. Boris leads us to a cow breeder, where we can buy cows.
+-   We get the cows. Boris gets us a sale with his.. eloquent speech.
+-   We deliver the 10 cows to the Panthragoons. Alma is nowhere to be found. The Panthragoon leader gives us two scales. One small one to give to the guild, and a large scale that can be used to summon the cats.
+-   We return to the guild and submit the quest completion. For our speedy completion, we get a double reward (roll two d20's for our reward)
+-   At the guild Boris' name is added to the party roster.
+-   Bonus rewards:
+    -   Asteria: none
+    -   Boris (previously Alma): armour
+    -   Distia: Wonderous item
+    -   Ogo: none
+    -   Rattamis: shield
+    -   Ryuzen: none
+    -   Tyrah: none
+    -   Vevinier: none
+-   We level up to level 3!

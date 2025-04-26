@@ -66,10 +66,10 @@
     -   500 gp per person
 -   Status: COMPLETE
 
-### Panthragoon Hunt Needed!
+### ~~Panthragoon Hunt Needed!~~
 
 -   Location: Shadowpine Forest, east of Blackshire
--   Description: A group of deadly Panthragoons has been prowling the forests, preying on novice adventurers and lone travelers. These formidable creatures, a hybrid of panther and dragon, combine the stealth and agility of a large feline with dragon-like resilience and elemental breath attacks. They have become a serious hazard for anyone journeying through Shadowpine Forest.
+-   Description: A group of deadly Panthragoons has been prowling the forests, preying on novice adventurers and lone travelers. These formidable creatures, a hybrid of panther and drake, combine the stealth and agility of a large feline with drake-like resilience and elemental breath attacks. They have become a serious hazard for anyone journeying through Shadowpine Forest.
 
 -   Quest Objectives: Locate and eliminate the Panthragoons before they cause further harm. A Panthragoon scale or claw should be provided to the outpost for confirmation of the job’s completion.
 -   Reward:
@@ -89,7 +89,7 @@
     -   They can choose which element they use per attack (freebie! - Distia)
     -   They are pack animal (pack tactitcs? unclear) (Distia)
     -   Does the alpha have an ability triggered by the death of an underling? -> yes (Alma)
--   Status: INCOMPLETE
+-   Status: COMPLETE?
 
 ## Session 8
 
