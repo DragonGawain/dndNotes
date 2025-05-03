@@ -145,7 +145,7 @@ We all level up to level 2.
 -   We also get a special deal at the wolfkin shop (cause of Tyrah)
 -   As we wrap up our shopping, we get a message on the sending stone: "We have secured lodging for you outside of the dungeons." The name of the new tavern is "The Gilded Bough".
 
-### Session 9 - Apr 18, 2025
+## Session 9 - Apr 18, 2025
 
 -   Pre-session: Long term goal talk
 -   Distia not here (? no message about it, but wasn't here for session..)
@@ -220,7 +220,7 @@ We all level up to level 2.
     -   Tyrah: Wonderous item (crit!)
     -   Vevinier: none
 
-### Session 10 - Apr 25 2025
+## Session 10 - Apr 25 2025
 
 -   We awake from our long rest in the tavern (with the entire party present for once!) and Distia's sensing stone goes off with the [Panthrgoon quest](./quests.md#panthragoon-hunt-needed)
 -   We start off the session with some RP, with a focus on the permanent madness' that we got last session (except for Distia, who got away unscathed being absent last session, and thus avoided getting afflicted with a permanent madness).
@@ -266,3 +266,33 @@ We all level up to level 2.
     -   Tyrah: none
     -   Vevinier: none
 -   We level up to level 3!
+
+## Session 11 - May 02 2025
+
+-   Sidequests begin
+-   Distia and Rattamis' subclass quests happen today
+-   We venture to the eastern island for the sidequests
+-   We venture to the druid school for Distia's subclass quest.
+-   The creatures there will not hurt us, but will make us wish to hurt them.
+-   Three trials: puzzle, riddle, and dream visions
+-   We begin with dream visions portion.
+-   Ocean with hand reaching out, sandy beach, starry constellations in the sky above
+-   Staying within the dream realm is very dangerous. We have 1 hour to escape.
+-   Taking a step forward, the constellations in the sky above change slightly. Taking a step in any direction causes all the contellations to move chatoically.
+-   Wisdom saving throws - Rattamis and I fail. The fail causes us to wander to the wrong path. Distia calls us to rejoin her on the correct path and feels a sense of rightousness (insight)
+-   Distia notices that the stars are in the wrong places.
+-   (Perception) some stars are shining brighter than others, and the locations of some constellations is incorrect. Some constellations shouldn't be visible given the current time of year, yet they are visible.
+-   Boris is still _really_ funny
+-   We know that we need to get three specific constellations in the sky (Draco, Virgo, Leo), but have no idea how to get them in the sky. Moving around gets the stars to shift randomly, but it's not consistent.
+-   We must get to the silvery ocean!
+-   We all get out.. except for Rattamis who get stuck in the dream realm for a while.
+-   Distia (and therefore the rest of us as well) proceed to the riddle section next.
+-   Three riddles
+    -   Number 1: "I dance but have no feet, I rise but leave no ground. I can guide the lost and blind, yet none can catch or bind. What am I?" Answer: star
+    -   Number 2: "I burn without fire, I shine without fuel. I mark both death and life, A beacon and a jewel. What am I?" Answer: a star
+    -   Number 3: "Born of fire, robed in night, I lead lost travelers home by sight. But try to grasp, and I am gone. What am I?" Answer: northern star
+-   We spent like, 30 IRL minutes drawing lines in a star map
+-   Distia subclass quest complete! We move on to Rattamis'
+-   Rattamis goes about his subclass quest solo
+-   Does some dice rolling
+-   Rattamis subclass quest complete

@@ -6,3 +6,4 @@
 -   Am I leveled up? - Distia, Session 7 (Apr 04, 2025)
 -   Holy shit I need therapy - Distia, Session 10 (Apr 25, 2025) (This was the first session where we had all the madness effects)
 -   Wait, we're food?! - Cows, Session 10 (Apr 25, 2025)
+-   Thine holeS in the cheddar don't look OK - Boris, Session 11 (May 02, 2025)
