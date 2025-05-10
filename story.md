@@ -296,3 +296,26 @@ We all level up to level 2.
 -   Rattamis goes about his subclass quest solo
 -   Does some dice rolling
 -   Rattamis subclass quest complete
+
+## Session 12 - May 09 2025
+
+-   We return to the main continent (from the eastern continent).
+-   We go to the tavern to pick up Tyrah (who wasn't here last session, and thus stayed behind at the main continent during last session).
+-   On the main continent, we aim to complete Asteria's subclass quest.
+-   Asteria is shown to a massive clockwork tower (the axis pendulum) that has a real big clock in it. Asteria must fix a cog of time, a cog of matter, a cog of law, and a cog of soul.
+-   Riddle for the cog of time: Time splinters for the uncertains minds, the path that remains is not the one you'd hope for, but the one you ought to prevent.
+-   We solved the cog of time riddle. The answer was village number 2.
+-   Second riddle, cog of matter. It's another drawing riddle.
+-   One piece is "Upward movement of structure"
+-   Support the center vertically
+-   Hexagon is fixed order
+-   Symmetry with left
+-   lateral balance
+-   vertical symmetry
+-   reflects opposite of top left
+-   pushes towards the center from below
+-   I enjoyed the solving of the puzzle, but upon seeing the explanation, I decided I didn't like the puzzle.
+-   Next cog, the cog of law. We get a riddle! "The law is perfect, the world is not, therefore, interpret"
+-   One answer is logical, the others are not. Identify the logical one.
+-   We finish Asteria's subclass quest.
+-   We also do Tyrah's subclass quest - Tyrah gets cured of being obsessed with the fireball book.
