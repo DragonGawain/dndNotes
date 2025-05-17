@@ -319,3 +319,11 @@ We all level up to level 2.
 -   One answer is logical, the others are not. Identify the logical one.
 -   We finish Asteria's subclass quest.
 -   We also do Tyrah's subclass quest - Tyrah gets cured of being obsessed with the fireball book.
+
+## Session 13 - May 16 2025
+
+-   Mine and Ryuzen's subclass' today!
+-   Ryuzen does theirs first.
+-   Best for last, my subclass quest!
+-   We played around and did a 2v2 with the members. I was the last one standing.
+-   Then we faught some random mobs the DM threw at us
