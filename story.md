@@ -340,6 +340,6 @@ We all level up to level 2.
 -   Fight doesn't go well. Boris, Asteria and I are all down. Distia takes her chance and flees the battle, only for the alpha to chase her and take her unconsious as well.
 -   Aaaaaaaand we TPK
 -   And then, we wake up in the tavern the next morning..
--   Session ends.
 -   The events seem to have never happened. The items we used are returned to us, etc. But, Asteria, the one who was given the quest, is missing.
 -   As Distia wakes up, she sees a vision of a dragon's tail piercing Asteria's heart. The cost of failing the god's quest.
+-   Asteria is confirmed dead - they'll be making a new character
