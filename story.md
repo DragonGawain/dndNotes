@@ -327,3 +327,19 @@ We all level up to level 2.
 -   Best for last, my subclass quest!
 -   We played around and did a 2v2 with the members. I was the last one standing.
 -   Then we faught some random mobs the DM threw at us
+
+## Session 14 - May 23 2025
+
+-   Rattamis and Ryuzen aren't here for session tonight
+-   The bastion quest begins! (also we pray that we don't get TPKed)
+-   It is the night of the full moon. A raven calls to Asteria and speaks in her mind; "May the light of the moon guide you to the bastion"
+-   Boris buys a lot of liquor. 15 bottles of wine to be precise.
+-   At the entrance to the Bastion (think medieval castle) that the God has guided us to, we find four shadow dire wolves, and one alhpa shadow dire wolf.
+-   Big bad alpha wolf frightens the party, and the frighten sticks around for a bit.
+-   Shadow wolves are strong again slashing (seem to be strong against all weapon attack types). They also have resistance against radiant damage, but are not resistant to fire damage.
+-   Fight doesn't go well. Boris, Asteria and I are all down. Distia takes her chance and flees the battle, only for the alpha to chase her and take her unconsious as well.
+-   Aaaaaaaand we TPK
+-   And then, we wake up in the tavern the next morning..
+-   Session ends.
+-   The events seem to have never happened. The items we used are returned to us, etc. But, Asteria, the one who was given the quest, is missing.
+-   As Distia wakes up, she sees a vision of a dragon's tail piercing Asteria's heart. The cost of failing the god's quest.
