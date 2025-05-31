@@ -388,3 +388,4 @@ We all level up to level 2.
 -   Boris keep calling Seralyth a hag.
 -   New Ryuzen lore! Ryuzen likes checkers!
 -   Upon Seralyth being selected as party leader, she claps her hands together in a fashion, eerily similar to how Distia would, and calls for everyone to venture to the Adventurer's guild to get signed up at the guild. Do party registration and stuff and head off on a quest.
+-   Post session, Boris and Tyrah got some items (one each) to bring them up to more or less the party average.
