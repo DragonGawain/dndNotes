@@ -7,3 +7,5 @@
 -   Holy shit I need therapy - Distia, Session 10 (Apr 25, 2025) (This was the first session where we had all the madness effects)
 -   Wait, we're food?! - Cows, Session 10 (Apr 25, 2025)
 -   Thine holeS in the cheddar don't look OK - Boris, Session 11 (May 02, 2025)
+-   Fuck I have to write lore for that now - DM, Session 15 (May 30, 2025)
+-   Tyrah died eating chicken?! - Seralyth, Session 15 (May 30, 2025)

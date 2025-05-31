@@ -343,3 +343,48 @@ We all level up to level 2.
 -   The events seem to have never happened. The items we used are returned to us, etc. But, Asteria, the one who was given the quest, is missing.
 -   As Distia wakes up, she sees a vision of a dragon's tail piercing Asteria's heart. The cost of failing the god's quest.
 -   Asteria is confirmed dead - they'll be making a new character
+
+## Session 15 - May 30 2025
+
+-   We awake, paralyzed by fear.
+-   As time passes, the fear fades. As our senses come back to us, we hear a slow dripping sound.
+-   I'm the first of the party to get out of bed, and as I look out, I see blood slowly running out from under one of the doors from the female side of the bedrooms.
+-   I knock on the door and shout out for the rest of the party that there might be a situation afoot.
+-   The rest of the party joins me to investigate.
+-   We open the door to see Asteria, her limbs only barely attatched to her torso, and a gian hole is in the middle of her.
+-   Distia attempts to cast Cure Wounds to no avail.
+-   As we stand around Asteria's corpse, we hear a voice speak in our minds "Mortals, you have witnessed what happens when you fail a god's quest." Asteria's body begins to fade into shadows. (by the way, Ogo heard the god's voice as chibi as well)
+-   Dista enters a state of panic and attempts to grab a memento of Asteria's. But, grabs nothing but air as her body fully vanishes. Asteria's blood remains though.
+-   [insert chaos from second madness where I see everyon as chibi versions]
+-   Boris prays to Che'dar and runs away crying.
+-   Distia slaps the madness out of me. (it quickly became not so fun, especially given the dark atmosphere brought about by Asteria's death)
+-   Ryuzen wakes up and, upon seeing all the blood everyone and on everyone, goes to cry in a corner.
+-   Rattamis pulls Ogo away and informs Ogo that Asteria is dead, taken away by the god who gave us the quest.
+-   Rattamis and Distia have a bit of a heart-to-heart. (Also Distia thinks that she's invisible, and so is internally surprised that Rattamis can see here)
+-   Distia stands up and announces that we should inform the barkeep about what happened.
+-   Ryuzen is still very emotionally distraught (more madness madness!), but regains some composure and follows Distia out the end of the hall, where Boris went (towards the main floor).
+-   Distia is still _very_ upset with Ogo. He follows behind at a distance.
+-   Upon getting to the main floor, we see Boris slap 30 gp on the counter and ask for a lot of alcohol. He's given a very large keg, which he starts drinking from with a straw.
+-   Distia informs the owner of Asteria's demise.
+-   Tyrah quietly orders a chicken from the bar.
+-   Boris quickly passed out, very drunk (after all of 2 drinks). Distia checks on him and arranges him to make him a bit more comfortable.
+-   Ogo thanks Velvyra (the owner) for the advice she gave to Distia, and then moves to sit at a table where Distia isn't (huzzah for social awkardness)
+-   We give give Boris the nickname "Mr. Kathunk"
+-   Distia calls for a group meeting.
+-   Distia informs the party that this whole adventuring thing is too much for her. She announces that she will be leaving the group.
+-   We bid our farewells to Distia.
+-   We all slowly stare at Tyrah, the last female of the party, as she eats her chicken.
+-   Distia's new character, an elf named Seralyth, forces herself to join the table.
+-   Ogo questions her sanity at wanting to join _this_ group of all groups after listening to Distia's farewell.
+-   Tyrah offers a chicken leg.
+-   Seralyth recognizes the esteemed acolyte of Che'dar, and slaps him out of his drunken sleep.
+-   Ogo quickly becomes friendly with Seralyth. A welcome addition to the party!
+-   Boris and Seralyth have a history. Something about Seralyth always killing people, and Che'dar liking Seralyth more than Boris. Seralyth then starts eating cheese in front of Boris. Boris responds by opening up his cloak and a cheese wheel falls out. Seralyth grabs it out of the air and begins eating it too.
+-   ... talks of cult ensues.
+-   Something something Boris calls Seralyth a hag, and that death always follows her. Seralyth tells boris to stop being so melodramatic (paraphrasing)
+-   Seralyth and Tyrah share a handshake as Seralyth joins the team, much to Boris' dismay.
+-   Boris gives a prophecy that allowing Seralyth to join, and even worse if she leads, will only lead to the group's doom.
+-   As Seralyth stands, a poster proclaiming faith to Che'dar falls from her bags.
+-   Boris keep calling Seralyth a hag.
+-   New Ryuzen lore! Ryuzen likes checkers!
+-   Upon Seralyth being selected as party leader, she claps her hands together in a fashion, eerily similar to how Distia would, and calls for everyone to venture to the Adventurer's guild to get signed up at the guild. Do party registration and stuff and head off on a quest.
