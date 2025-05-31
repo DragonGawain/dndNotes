@@ -172,7 +172,7 @@ We all level up to level 2.
     -   The answer was that we will meat a lich under the moonlight.
 -   Lastly, Alma elected to not share their question/answer.
 
--   Asteria walks into the taver (?). Velvyra's eyes are now amber and she seems confused, and she asks Asteria, who just walked in, to approach. Velvyra asks Asteria "where am I?", to which Asteria replies "The Gilded Bough" (name of the tavern).
+-   Asteria walks into the tavern (?). Velvyra's eyes are now amber and she seems confused, and she asks Asteria, who just walked in, to approach. Velvyra asks Asteria "where am I?", to which Asteria replies "The Gilded Bough" (name of the tavern).
 -   V asks who owns it, A: you do
 -   V: What is this tavern? A: This is your refuge, a neutral territory for tired travelers to stop and rest.
 -   V: I see. It feels like I've been standing ehre for a while. Do you know how long I've been standing here? A: Uncertain, but for as long as I have been here.
