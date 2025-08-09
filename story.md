@@ -389,3 +389,55 @@ We all level up to level 2.
 -   New Ryuzen lore! Ryuzen likes checkers!
 -   Upon Seralyth being selected as party leader, she claps her hands together in a fashion, eerily similar to how Distia would, and calls for everyone to venture to the Adventurer's guild to get signed up at the guild. Do party registration and stuff and head off on a quest.
 -   Post session, Boris and Tyrah got some items (one each) to bring them up to more or less the party average.
+
+## Session 16 - Aug 08 2025
+
+-   A grand return from the hiatus!
+-   Some player changes happened - Ryuzen left, Astrox also left (but announced it and let us know!). We also got some new players - Sylvie (from the disbanded sunday campaign), and Chases, a newcomer.
+-   In game, two months have also passed. After our break to come to terms with the cosntant death out party has been facing, the guild summons us and gives Seralyth, the party leader, a voucher to get us onto a ship to the elven continent.
+-   We meet a bunch of ship captains, who all look disturbingly similar to each other..
+-   Seralyth is SUPER exhausted tonight, so DM plays the character for a bit.
+-   There is only 1 captain accepting guild voichers at the moment, so we give them our voucher to make way to the port city of Thaymirr.
+-   Other than us, there is a party of Tieflings and a single Tabaxi (Chases).
+-   We were informed that one passanger is slightly... disturbed and we should try to avoid interaction with them.
+-   The journey will take about 6 days.
+-   We are requested to remain in our cabins during travel.
+-   And the captain once more requests tht we do not talk to the other tabaxi downstairs.
+-   We go downstairs and encounter Cogite, a tabaxi offering wares.
+-   The tabaxi introduces themselves as Cogite, and says; "Hello new travelers. I am the patron of this ship. As the patron of this ship, I require one person to draw from this mystical deck once per day. Who shall try today! For the protection of the ship, I need someone to have an unknown card on their person! (paraphrasing a bit)"
+-   Boris requests a card from the deck of 13 cards (as opposed to the one of 22 cards). Cogite tells Boris to not look at the card, for if he does, he shall have to draw a new one.
+-   Boris prays to Che'dar requestin advice on whether or not he should look at the card. (he gets a 6). He hears the pressing of cheese.
+-   Boris looks at the card.
+-   Boris flips over the card of Ruin. Boris loses all items of non-magical personal wealth. Property deeds, items, all forms of worldly wealth.
+-   Basically, any written evidence of anything that Boris owns, along with the items itself (insomuch as is possible) dissapear.
+-   Seralyth draws a card from the deck of 22 cards and looks at the card.
+-   Upon flipping the card, a purple potion (the elixir of cosmic vision) appears in her hands.
+-   Rattamis requests a card from the deck of (now 21) cards.
+-   I taKe a card from the deck of 13. And don't look at it.
+-   By this point, the ship has long since started moving. We hear shouting from the top deck, it sounds a bit like "Kraken! AHHHHHH!"
+-   Boris moves to go to the top deck, and suddenly catches a goliath barbarian.
+-   Little 4ft2 kenku catches big goliath barbarian, and falls (but takes no damage).
+-   We observe the kraken in a victorious pose after having just performing a glorious spinning football throw of the goliath barbarian.
+-   The goliath also has no memories. And a fear octopus.
+-   Also Boris is talking spanish (because he lost all possessions, including languages. Cause he's a Kenku)
+-   Boris speaks spanish to Seralyth, at which point Seralyth asks Rattamis to help her throw Boris off board.
+-   In the few moments we spent discussing what to do, the kraken went away..
+-   The crew is still nervous, but the captain declares "well, if the kraken wanted us dead, we would be dead. I uhh, guess the kraken wanted to deliver this goliath to us?"
+-   After the kraken goes away, Cogite crows victoriously "see! The cards have protected us! Come! Come and draw more cards!"
+-   Boris draws another card (from 13) (upon the promise to not look at it).
+-   Seralyth also draws another card (from 22 this time).
+-   Sylvie is feeling hungry, so I go request use of the ship kitchen to cook up a meal for everyone. I make tuna melts for all, and Chases the tabaxi joins in under the allure of tuna.
+-   Boris has some, and his head hits the table. (apparently fish is bad for him? But he said that in spanish, so no one knows that)
+-   About an hours passes before Boris bolts upright.
+-   And he speaks common again!
+-   Boris finds some green liquid and takes a swig. Turns out it's jagermeister made out of seaweed. He somehow manages to drink it, but there's a lump stuck in his throught.
+-   The captain threatens to hang Boris is he drinks another bottle of alcohol.
+-   I offer her a tuna melt.
+-   Chases slips a (unscrewed) bottle of _something_ into Boris' pocket.
+-   Upon noticing the bottle, Boris praises Che'dar and starts drinking it.
+-   The captain pulls Boris away the moment she sees Boris drinking.
+-   As the captain is pulling Boris up to tie him up, the captain yells out loud enough for us all to hear; "Pirates! Pirates are boarding the ship!"
+-   The tiefling party assists us with the pirate encounter! (DM had to get an 18, 19, or 20 to trigger this combat. In both this group and wednesday, he rolled an 18 on night 1).
+-   Combat ensues! (with boris tied as the figurehead of the ship)
+-   We win! Yay!
+-   Boris tempted fate too many times looking at cards and poofs away from existence.
