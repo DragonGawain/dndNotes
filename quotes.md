@@ -9,3 +9,5 @@
 -   Thine holeS in the cheddar don't look OK - Boris, Session 11 (May 02, 2025)
 -   Fuck I have to write lore for that now - DM, Session 15 (May 30, 2025)
 -   Tyrah died eating chicken?! - Seralyth, Session 15 (May 30, 2025)
+-   Why am I too good at the game? At rolling dice?! - Seralyth, Session 17 (Aug 15 2025)
+-   You feeling good? (Tyrah) Uhh, yeah, I guess? (Chase) - Tyrah and Chase, Session 17 (Aug 15 2025)

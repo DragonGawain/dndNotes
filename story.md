@@ -441,3 +441,50 @@ We all level up to level 2.
 -   Combat ensues! (with boris tied as the figurehead of the ship)
 -   We win! Yay!
 -   Boris tempted fate too many times looking at cards and poofs away from existence.
+
+## Session 17 - Aug 15 2025
+
+-   We resume from last time, sleeping in our cabins (except for Seralyth, who doesn't sleep (elf trance thingy))
+-   As we sleep, we hear the voice of our respective race's god say "do not worry about the bird, the cheese has guided him to the ocean".
+-   Boris is not with us for tonights session (for in game reasons! They were poofed away at the end of last session)
+-   Rattamis and I play dragonchess. Rattamis absolutely demolish's me. Seralyth tries to sneakily help me, which I do not notice. The end result is a tie. Neither of us are awareof Seralyth's interference.
+-   In round two, we tie again, but Seralyth once more cheats to help me again. Neither of us notice _again_, resulting in me winning.
+-   I cook for the ship again at the behest of the ship captain, much to her disgruntlement.
+-   I make sushi with some fresh caught tuna. It's OK.
+-   Seralyth tries to make a funny joke, but has mic issues so no one hears it.
+-   After out meal, we head back up to the top deck to hear a plopping sound, and see people washing away in the water, as well as see a pair of large sea hags on board the ship.
+-   We kill the two sea hags and they turn into puddles of water as we do so. As I divine smite the second one (getting a total of 2 on 2d8), they summon a big sea monster behind us.
+-   The sea monster is very strange and requires a lower number to hit it (too hit of a too-hit roll will cause the attack to miss)
+-   Seralyth and Sylvie both get a nat 20 (back to back turns) and since this creature requires a low to hit to hit it, both crits miss.
+-   "Why am I too good at the game? At rolling dice?!"
+-   Seralyth has the bright idea to fall prone to the floor to get disadvantage to try to hit the thing
+-   We win combat and Rattamis, Sylvie, Tyrah, and Chase go to help the overboard Tieflings. Only to see some face up cards in the boats. (3 face up cards each)
+-   All 12 cards go off at the same time - chaos ensues!
+-   Three demon lords (flame) spawn
+-   TYRAH
+-   A knight serving Tyrah also spawns
+-   Tyrah also gets 3 casts of the wish spell
+-   CHASE
+-   Some rougue HATES chases guts now
+-   All his magic equipment goes poof
+-   a stat goes up by 2
+-   RATTAMIS
+-   Rattamis gets a new magic weapon
+-   demon for rattamis
+-   he gets 50,000 gp
+-   SYLVIE
+-   Sylvie's soul gets pulled out of their body
+-   A demon appears in front of Sylvie
+-   And Sylvie also gets three casts of the wish spell
+-   The three demon lords disappear, and as Sylvie's body hits the deck of the ship, my back feels a bit heavier..
+-   Seralyth tries to check on Sylvie and doesn't do much good. I try to cast Cure Wounds and get my second double nat 1's on a pair of D8's tonight.
+-   Tyrah and Chase go to look for Cogite.
+-   Rattamis pulls a battle axe out of thin air (the magic weapon he got from the card)
+-   With Seralyth's help, we determine that Sylvie's body is protected by something, but their soul is not in their body.
+-   Tyrah and Chase can't seem to find Cogite anywhere..
+-   Chase raids Cogite's room and finds 11 cards of many things.
+-   Chase gets hit with TEN cards of many things face up.
+-   Tyrah watches Chase get cut in half by a scythe, brought back to life, and then stands tall. Chase no longer tries to hide in the darkness, but now stands proud, and seeking.
+-   Chase flipped two avatars of death and a kitty demon lord.
+-   And other stuff that I don't know about.
+-   Session ends.
