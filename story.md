@@ -462,20 +462,21 @@ We all level up to level 2.
 -   All 12 cards go off at the same time - chaos ensues!
 -   Three demon lords (flame) spawn
 -   TYRAH
--   A knight serving Tyrah also spawns
--   Tyrah also gets 3 casts of the wish spell
+    -   Tyrah got a demon lord
+    -   A knight serving Tyrah also spawns
+    -   Tyrah also gets 3 casts of the wish spell
 -   CHASE
--   Some rougue HATES chases guts now
--   All his magic equipment goes poof
--   a stat goes up by 2
+    -   Some rougue HATES chases guts now
+    -   All his magic equipment goes poof
+    -   a stat goes up by 2
 -   RATTAMIS
--   Rattamis gets a new magic weapon
--   demon for rattamis
--   he gets 50,000 gp
+    -   Rattamis gets a new magic weapon
+    -   demon for rattamis
+    -   he gets 50,000 gp
 -   SYLVIE
--   Sylvie's soul gets pulled out of their body
--   A demon appears in front of Sylvie
--   And Sylvie also gets three casts of the wish spell
+    -   Sylvie's soul gets pulled out of their body
+    -   A demon appears in front of Sylvie
+    -   And Sylvie also gets three casts of the wish spell
 -   The three demon lords disappear, and as Sylvie's body hits the deck of the ship, my back feels a bit heavier..
 -   Seralyth tries to check on Sylvie and doesn't do much good. I try to cast Cure Wounds and get my second double nat 1's on a pair of D8's tonight.
 -   Tyrah and Chase go to look for Cogite.
@@ -488,3 +489,95 @@ We all level up to level 2.
 -   Chase flipped two avatars of death and a kitty demon lord.
 -   And other stuff that I don't know about.
 -   Session ends.
+
+## Session 18 - August 22 2025
+
+-   Sylvie isn't here this session (their soul was zapped away, so DM told them they didn't need to be here)
+-   Chase decided to retroactively change what happened last time a bit as in-character Chase wouldn't have chosen to come back to life, so Chase is dead dead.
+-   Behind chase, Tyrah sees a vague shadow with teal eyes fade into the shadows as an avatar of death proudly stands over Chases dead body, and then disappears.
+-   We skip a bit to the end of the boat ride.
+-   Boris isn't on the ship.
+-   Ogo does not look at his card.
+-   Rattamis does not look at either of his two cards.
+-   Seralyth looks at her one card. Something happens, Seralyth does not know what.
+-   Tyrah has no cards.
+-   Sylvie's body is still soulless.
+-   Over the past few days, for some reason, my warhammer doesn't feel quite right. It feels.. top-heavy.
+-   Seralyth (and I) give it a once-over to check it out. I don't really notice anything wrong about it other than it being top heavy.
+-   Seralyth notices that part of the warhammer has shimmering silver celestial runes on it.
+-   The runes are, according to Seralyth, an incantiation to break through illusions.
+-   After talking a closer look at the runes atop the warhammer, Seralyth suddenly starts wheezing.
+-   Seralyth calls Ogo a weirdo, which Ogo takes as a compliment.
+-   Seralyth tries to give Ogo the nickname 'porcupine', to which Ogo protests. That interaction ends with Ogo accepting the name 'lantern boy'.
+-   Tyrah takes my warhammer to take a look at it. Seralyth responds by trying to snag it from Tyrah, nocking it out of Tyrah's hands. Tyrah intimidates Seralyth, to which she responds by by drawing her weapons.
+-   Tyrah walks away laughing at Seralyth.
+-   After that interaction, Ogo keeps the warhammer out of reach of the others.
+-   We arrive at the city of of Theramyr.
+-   When we leave the ship, the captain warns us that the cards that we have are bound to us, we will not be able to get rid of them without looking at them.
+-   When we arrive at the city, there's a festival going on! The sea elves are honouring their goddess.
+-   We step into the local guild tavern, and it happens to have a quest board in it! Three quest boards in fact - level 3, 4, and 5 power level quests.
+    -> To level up, we need to complete X number of quests, which unlocks the level up dungeon. We then need to complete the dungeon to level up.
+-   We enjoy a very sea-themed meal and then take our seven keys up to the 8 rooms on the fifth floor. We pass by some large rooms on lower floors, presumably for the lower tier of stays.
+-   I go to put Sylvie's body in a room, and as I go to leave, my back starts to hurt again, and it feels as though I've been carrying two people, instead of one.
+-   I seek some advice from some party members. Tyrah points out that green lines seem to have covered up the runes. They seem eerily similar to the green lines on Sylvie's greatsword.
+-   Tyrah goes to get Sylvie's greatsword and notes that the lines on the both of them seem very similar.
+-   Tyrah tries to do some stuff, touching them together and the like, trying to figure something out.
+-   We try to do some magic searching - Tyrah feels an evil presence from the warhammer, I feel a cold presence from it.
+-   I cast divine sense to see if I can figure out what's there. Tyrah, on the other hand, feels something hot and evil.
+-   Tyrah tries to pour a cold drink on the warhammer. It's now wet.
+-   Meanwhile, Rattamis and Seralyth went out to find a bank. They failed to find any though. They did find some shops though!
+-   Tyrah next tries to light it on fire. Nothing happens. Now it's dry.
+-   I cast Protection From Good and Evil on Sylvie. Still nothing.
+-   Tyrah tries to pick up Sylvie to see if Tyrah feels the same pain I did when I put her down.
+-   I try to take a look at Sylvie's greatsword to see if I notice anything different about it. And fail to notice anything.
+-   At this point, Seralyth and Rattamis come back and instantly suggest taking the warhammer to someone who knows more about magical things.
+-   Tyrah volunteers to keep watch over Sylvie, but first makes a quick run downstairs to get themselves some food.
+-   Seralyth, Ogo, and Rattamis go to take the warhammer to someone who knows more about arcana and things.
+-   We go downstairs and see tons of people - scholar, adventurers, citizens.
+-   We seek out a scholar and encounter Thalior Veythandil, seeming to be the most senior scholar.
+-   Seralyth approaches and begins explaining the situation, I pipe in an explain some other details.
+-   Thalior deduces that the warhammer is sentient. It is possessed by someone tall, and.. with deep roots.
+-   I go fetch Sylvie's body to bring to Thalior to see what he thinks of that.
+-   Thalior touches Sylive and claims to instantly understand. He points at Seralyth and gets upset at her, knowing that she knows.. something.
+-   He then casts the wish spell and gives Seralyth the curse that was supposed to be Sylvie's.
+-   Ogo asks what's going on, and Thalior says that Seralyth get him in the sights of some demon.
+-   Thalior then swipes away the warhammer and touches it to Sylvie's forehead. Her chest begins to rise and fall as she begins to breath again.
+-   I offer Thalior if he wants anything for his services, but he just waves me away.
+-   Tyrah goes to the vendor to buy some meat. Tyrah discusses with the vendor and tries to buy a full fish. But finds that they have no money. I find that my coin bag is also empty. Turns out, everyone's coin bag is empty. Except Seralyth's which has a blank card with a red lipstick kiss on it.
+-   Tyrah notices that there's an initial on the bottom corner of Seralyth's card that reads "T V"
+-   Seralyth realizes that it's the initials of Thalior, the man who fixed Sylvie.
+-   Tyrah suggests we go try to beat him up, while Seralyth is blushing at the thought of him.
+-   We venture back downstairs, but where he once sat, only his book remains.
+-   The book is written in celestial (which Seralyth knows how to read), and so Seralyth reads it.
+-   Seralyth does not tell us what it says, snaps the book shut, puts it in their pocket, and instead just says "well, I'll be back later" and moves to walk out of the door.
+-   Seralyth stops and turns around and asks us why we're following her. And tries to convince us to not follow her.
+-   The blush in Seralyth's face gives away that uhh, she's lying.
+-   As it's late and I'm still, well, glwoing, the entire city has been able to see us moving.
+-   Seralyth continues along for a midnight tryst.
+-   As Seralyth approaches the water (we were on a beach), something emerges from the water.
+-   Seralyth teleports back into my light and yells "F'ing help me!"
+-   Combat ensues..
+-   We see a sea monster thing that we somehow identify as Thalior.. thanks to it's glow-in-the-dark nameplate that has his name on it.
+-   (This has also been a _very_ sexually tense scene. I can't describe this.)
+-   I try to shield surf down the cliff (80ft high btw) to get down to where Seralyth is, spectacularly fail, and need to proc my armour's life saving ability. (the fall dealt 57 damage to me btw)
+-   The sexual innuendos continue.
+-   Thelior casts petrifying gaze on Tyrah, Seralyth, and myself. Only Seralyth is affected.
+-   We manage to finish it off, but Seralyth is a stone statue. As Tyrah finishes it off, Seralyth is freed from the petrify, but is soaking wet. As if covered in saliva.
+-   Tyrah throws Seralyth into the water.
+-   Also we don't get our money back.
+-   As Seralyth comes out of the water, she looks around for anything of value, but all she finds is Thalior the basilisk's (glow in the dark!) nametag.
+-   We go back to the tavern to sleep.
+-   In the mornign, we go down to the waterfront for the end of the festival. We see a phantasmol form of the sea elves' dragon god.
+-   Floating on the water, we see a magic circle with a naked kenku in it. We can tell it's Boris thanks to the cheese stuffed in his mouth.
+-   People begin murmuring and pointing.
+-   A curious elf approaches.
+-   The elf declares that the goddess of the see may be returned to his people if they win two out of the three tournaments today.
+-   (Also this elf is Althira, formerly known as Chase)
+-   Seralyth steps forward and claims the Kenku to be "one of hers (party members that is)".
+-   There are three tournaments!
+-   Black pearl race, tide wars (underwater combat), riptide riding (surfing)
+-   Seralyth and I, unsurprisingly, fail the black pearl race.
+-   As Tyrah takes their wooden stick for the combat, and a princess comes down and says "I want to make this more interesting! First, no lethal damage allowed! Next, the person who misses the most wins!"
+-   Tyrah loses the fight.
+-   Rattamis and Althira take the surfing challenge. Both get onto the board, but Rattamis gets toppled by the first wave. Althira easilly stays on board though.
+-   Rattamis then watches as the mystical bubble around Boris dissapear, sadly without any of his magic items though.

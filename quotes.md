@@ -11,3 +11,5 @@
 -   Tyrah died eating chicken?! - Seralyth, Session 15 (May 30, 2025)
 -   Why am I too good at the game? At rolling dice?! - Seralyth, Session 17 (Aug 15 2025)
 -   You feeling good? (Tyrah) Uhh, yeah, I guess? (Chase) - Tyrah and Chase, Session 17 (Aug 15 2025)
+-   "He's handsome, look away boy" - Seralyth, in reference to Ogo Aug 22 2025 (Session 25)
+-   "Boris is a bird? I thought he was a Kenku.." - Tyrah Aug 22 2025(Session 25)

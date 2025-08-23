@@ -122,3 +122,7 @@
 
 -   Special Instructions: These aberrations vary in elemental types—fire, ice, lightning, and arcane—each with unique attacks. Use caution and plan for versatile defenses. Take care to avoid causing additional damage to the delicate wards and artifacts within the halls.
 -   STATUS: COMPLETE
+
+# New quest stuff
+
+Quest board in discord now exists, so I'm gonna stop writing down the quests here. Instead, I'll just reference the quest name in the story notes.
