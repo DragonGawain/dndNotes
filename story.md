@@ -581,3 +581,36 @@ We all level up to level 2.
 -   Tyrah loses the fight.
 -   Rattamis and Althira take the surfing challenge. Both get onto the board, but Rattamis gets toppled by the first wave. Althira easilly stays on board though.
 -   Rattamis then watches as the mystical bubble around Boris dissapear, sadly without any of his magic items though.
+
+## Session 19 - September 12 2025
+
+-   Out of game, the party discussed and we decided to take the Darkstrikes quest from the quest board, in part because it offers lots of money, and we all have zero money at the moment.
+-   Boris the naked bird goes shopping and comes back with a wheel of cheese and a bag that clanks with a strange glass clanking and sloshing liquid (it's full of bottles of wine)
+-   We try to ask the guild receptionist where to find the darkstrikes. And are told that they have been spotted in water.
+-   Apparently the birds in the sky told the receptionist that the darkstrikes have been spotted in water. (receptionist is a druid)
+-   The receptionist is very insinit that the darkstrikes 'can be found in water'. And refuses to elaborate.
+-   Althira thanks the receptionist profusely, and also requests that she thanks the birds as well, for being so very helpful. The receptionists name is Caelwen Faerindor.
+-   Upon finding water, water, and even more water, Boris decides to cast Eldritch Blast, at the water.
+-   Since Boris lost his magical focus, he, eats some cheese and opens his mouth and an eldritch blast the colour of cheese comes out.
+-   Some folks stick their heads in the water to try to spot any darkstrikes. They see, _gasp_, water!
+-   Also the seagulls in the sky are laughing at us. Boris casts eldritch blast at the seagulls in a drunkun stupor.
+-   Boris shoots, hits an Aarakocra who swoops down, sticks a super hero landing, and gives Boris a 'come at me bro' hand taunt. It's Steven the seagull.
+-   Boris and Steven engage in an 'honourable' duel. (This Steven is kinda really strong)
+-   During the fight, Steven slaps the cheese wheel out of Boris' hand, making him drop it.
+-   Lying on the floor, Boris sptis blood at Steven and threatens to kill all the seagulls.
+-   Welp, Boris got absolutely demolished and falls unconscious, then gives us the two fingers to his eyes then to us as a challenge. Seralyth responds by giving him the middle finger. Steven takes that as a challenge and swoops up into her face and.. misses his punch.
+-   Also I've been rolling for which of the three special effects Steven inflicts with my trusty blue die.
+-   Seralyth beats up Steven and he runs away.
+-   Tyrah tosses one last taunt at Steven as he runs away.
+-   By the way, Steven is the one who submitted the darkstrike quest.
+-   Upon hearing that, Seralyth threatens to kill Boris, but is stopped by the receptionist, 'no killing in the guild'. We're given the ultimatum of slitting Boris' throat, or knocking him unconcious and choosing a different quest.
+-   While the party is having this vote, five polic officers walk in and all immediately lock eyes on Boris.
+-   Boris tries to cast Eldritch Blast on them, but the spell fails.
+-   Boris tries to run away, and Seralyth moves to tackle Boris.
+-   Seralyth pins Boris and four of the cops come along and pin down his limbs. They take away his wheel of cheese and his bag of wine.
+-   They announce that Boris is under arrest for shooting a seagull out of the sky and challenging him to a duel. Your trial will be held tomorrow.
+-   The cop looks at Seralyth 'you are his party leader, are you not?'
+-   Seralyth promptly ejects Boris from the party, and thus we lose the right to attend his trial.
+-   Boris, still drunk, begins cursing the cops. The lead cop begins writing on her scroll.
+-   Going to the trial: Ogo, Rattamis (going to watch), Tyrah, Althira is confused but will also go. Seralyth, seeing that the rest of the party is going, decides to also go.
+-
