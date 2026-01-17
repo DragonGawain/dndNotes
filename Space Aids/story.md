@@ -1,0 +1,24 @@
+## Session 1 - Jan 16, 2026
+
+- We find ourselves dead, and suddenly standing before the gods. We hear them speak in an androgynous voice, the voice ringing in our minds.
+- The gods inform us that they have summoned us in their time of need, and apologize for interrupting whatever sort of time we might be having.
+- One by one, the gods speak to us and lend us their power (along with some items!). They also give us clothes. Cause, y'know, we didn't have any of those.
+- I'm not keeping track of what everyone asked for and got.
+- Marian, the only one of us who has decided to multiclass from start, gets some special RP scenery.
+- After we get our stuff, we're dropped from high into the sky onto the planet. We crash into a magic circle which shatters upon impact with it. Some of the mages standing around the circle drop dead the moment we touch it.
+- A king with heteocrohmatic eyes sees us land, sighs, and begins to walk away before we can even stand up.
+- The items that the gods gifted us appear a lot less glamorous than they did a moment ago. The gods also leave us with a parting message: "enjot the strength of a level 20 adventurer".
+- After a moment longer, we see the magic circle glow bright once more. We feel our strength return to us, yet take something away at the same time.
+- One of the mages tells us that we are in Bastion Carne. They failed the summoning the first time, and, apparently due to our 'weaker' energy, they conclude that they have failed again.
+- Upon being questioned, they reply that they attempted to summon legendary heroes, of power level 20. But we are mere power level 3, as confirmed by a crystal ball.
+- Still panting, the mage continues: great heroes, we do not mean offense to you at all for summoning you, but our land is in great need of assistance.
+- Since we are not the great heroes they attempted to summon, we will need to power ourselves up. The.. remains of the adventurers guild still remains and offers quests.
+- They ask that, whenever we head out of the settlement, to map the area around us.
+- They offer us houses to settle in.
+- The king left earlier. A queen exists but is seldom seen. Artisans exist around town to help us. Three blacksmiths (names in NPC channel) Light weapon specialist, normal weapon specialist, heavy weapon specialist. 3 armourers: light armour specialist, medium armour specialist, heavy armour specialist. Master tanner, accepting leathers, hides, monster skins, etc. Willing to turn raw stuff into useable materials. Lumberjacks: gatherer of rare woods and special trees, processor specialist. 2 jewlers: ring, amulet, wonderous items specialist. Arcane specialist. two alchemists: potions (healing, resistance), **DON'T BUY FROM CRONK**, Cronk makes potions that no one knows what they do. 4 fletchers: bow specialis (short, long), crossbow specialst, firearm specialist, amunition of bolts and arrows, bullets. 4 farmers tending to crops. 2 fishermen out in the woods to the east and west. And other random blokes doing.. regular bloke stuff around the town. And a military force 60 strong.
+- The mages around us start picking up the dead bodies around us, and pick up Thane as well, who is pretending to be dead, ready to be shipped of to the crematorium. That makes him stop his act _real_ quick.
+- We all chose our settlement of choice.
+- We enjoy a meal made by Renna, accompanied by burnt bread baked by Jacques. Thane runs around outside and rips a tree out of the ground. The knights are.. unamused by this.
+- Thane goes back and and runs around looking for the knight who told him to put the tree down. They engage in a uhh, "duel", where Thane did shockingly well.
+- Sir Tharock Grimbrand grows to like Thane a bit.
+- He also gives Veil a stern warning about trying to sneak around town.
