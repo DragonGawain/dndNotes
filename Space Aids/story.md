@@ -7,7 +7,7 @@
 - Marian, the only one of us who has decided to multiclass from start, gets some special RP scenery.
 - After we get our stuff, we're dropped from high into the sky onto the planet. We crash into a magic circle which shatters upon impact with it. Some of the mages standing around the circle drop dead the moment we touch it.
 - A king with heteocrohmatic eyes sees us land, sighs, and begins to walk away before we can even stand up.
-- The items that the gods gifted us appear a lot less glamorous than they did a moment ago. The gods also leave us with a parting message: "enjot the strength of a level 20 adventurer".
+- The items that the gods gifted us appear a lot less glamorous than they did a moment ago. The gods also leave us with a parting message: "enjoy the strength of a level 20 adventurer".
 - After a moment longer, we see the magic circle glow bright once more. We feel our strength return to us, yet take something away at the same time.
 - One of the mages tells us that we are in Bastion Carne. They failed the summoning the first time, and, apparently due to our 'weaker' energy, they conclude that they have failed again.
 - Upon being questioned, they reply that they attempted to summon legendary heroes, of power level 20. But we are mere power level 3, as confirmed by a crystal ball.
@@ -22,3 +22,38 @@
 - Thane goes back and and runs around looking for the knight who told him to put the tree down. They engage in a uhh, "duel", where Thane did shockingly well.
 - Sir Tharock Grimbrand grows to like Thane a bit.
 - He also gives Veil a stern warning about trying to sneak around town.
+
+## Session 2 - Jan 23, 2026
+
+- In the guild hall, there are tools on standby: a pickaxe (for mining quests), a special axe (for logging quests), special knife (tanning quests), 2 herbalism kits, and cartographer tools.
+- Though most of us do not recognize the material of the tools, they are, in fact, made out of mythril.
+- Any world locations that the wednesday group reveals, we can also see, and visa-versa.
+- Ground rules for world exploration: every 5 miles, we roll for a random encounter. If the tile is illuminated (mapped), the chance for an encounter is halved. Every successful encounter, we get a single free pass - we can chose to skip the next encounter if we want to.
+- Renna takes the cartography tools, Eren takes the skinning knife and herbalism kit, and the pickaxe and axe get pushed onto Thane, despite his claims that he could just rip a tree out of the ground.
+- When harvesting materials, one person, without any buffs, will rolls for how much of it we obtain.
+- We can trade materials for other materials of equal rarity (i.e. one iron ore for one log of equal rarity)
+- One of the knights visits Veil. Despite her protests, Reinna opens the door. Politely.(chronologically, this happened on one of the days between last session and this one). The knight apologizes for Sir Grimbrand's behaviour, and also gives a warning that everyone is expected to be within their homes before midnight. Failure to be in your house after midnight twice will result in being thrown in jail. Reinna relays this information to the party.
+- Dark tile => d10 for encounter, light tile => d20 for encounter
+- I manage to stumble us upon an army of infinite jackals. The DM has us skip the encounter.
+- I stumble across another army of infinite small weak creatures. Hawks this time. THis encounter was also skipped.
+- I then stumble across two gold dragons. This encounter actually happens! Yippee! (sarcasm)
+- Combat begins! We roll stealth to see if we can sneak away. Everyone except Reinna passes the stealth check.
+- I convince the dragons to leave with the power of baguettes.
+- Once more, the power of The Baguette has been demonstrated in full glory!
+- We then run into 18 elk!
+- We use our mulligan from 'beating' the dragon encounter to skip this. We decide to skip the fight of 18 elk because of the sheer number of them and that our AOE sorcerer isn't with us (they disconnected)
+- After a bit of getting lost in the lower mountains, we encounter our target, the polar serpent!
+- The snake can apparently uhh, fly. So it flys up right into our faces!
+- The baguette strikes the finishing blow against the mighty serpent! And then it becomes a pile of ash and gets swept away in the wind.
+- We all try to take a look around to see if we can find any evidence of the creature, but the only signs of its existence that we find is the imprint in the snow of where we originally saw it..
+- On our way back from fighting the serpent (we decide to hit up the iron mine the other party located, then map out the area to the west of the bastion), we get ambushed by a Bulette. It leaps out of the mountains, knocks Reinna down in a single slap, and then chomp down on Thane. Twice.
+- Eren manages to put it to sleep, at which point we all run away from it.
+- Eren (team MVP of this encounter!) also casts Cure Wounds to heal up Reinna back from the dead. Marian also force feed Reinna a goodberry.
+- Turns out, the guild info was a wee bit wrong. As we _also_ encounter a manticore (the other group killed a manticore on their quest, and the guild thought there was only one of them..). Also there's three manticores.
+- Combat begins!
+- I lead the charge (for honour and bread!) at one of the manticores and stab it real good.
+- As we defeat the manticores, they, much like the polar serpent, also turn into black ash and fade away. It seems that might just be a rule of the world..
+- We manage to defeat the three manticores with no deaths! (though I'm dow to 3 hp...).
+- We collect 20 iron ore! (Thane is strong)
+- We fail to map any of the area on our way southwest back to the bastion from the iron mine.
+- We make it back into town safely! (after I fed that duo of dragons some more bread)
