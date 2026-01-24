@@ -1,7 +1,7 @@
--   Bulk of notes are in [story.md](https://github.com/DragonGawain/dndNotes/blob/main/story.md)
+- We are currently in the second campaign that I've played with this group, the Space Aids campaign.
 
--   Shopping list is my personal shopping list, if you want to add stuff to it, please just make a new header with your name at the top. Put a single `#` at the start of a line to make a header.
+- You can find the bulk of the notes in [story.md](https://github.com/DragonGawain/dndNotes/blob/main/Space%20Aids/story.md).
 
--   Quests whose title have a line through them are complete.
+- My DM streams the campaign! You can catch the streams on his twitch: https://www.twitch.tv/dzurek. I play in the Friday group, starting at 7:00 PM EST. There's also a Wednesday group, which also starts at 7:00 PM EST.
 
--   Don't touch the .gitignore file
+- Don't touch the .gitignore file
