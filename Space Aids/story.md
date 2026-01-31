@@ -27,9 +27,9 @@
 
 - In the guild hall, there are tools on standby: a pickaxe (for mining quests), a special axe (for logging quests), special knife (tanning quests), 2 herbalism kits, and cartographer tools.
 - Though most of us do not recognize the material of the tools, they are, in fact, made out of mythril.
-- Any world locations that the wednesday group reveals, we can also see, and visa-versa.
+- Any world locations that the wednesday group reveals, we can also see, and vice-versa.
 - Ground rules for world exploration: every 5 miles, we roll for a random encounter. If the tile is illuminated (mapped), the chance for an encounter is halved. Every successful encounter, we get a single free pass - we can chose to skip the next encounter if we want to.
-- Renna takes the cartography tools, Eren takes the skinning knife and herbalism kit, and the pickaxe and axe get pushed onto Thane, despite his claims that he could just rip a tree out of the ground.
+- Renna takes the cartography tools, Eren takes the herbalism kit, Artemis takes the skinning knife, and the pickaxe and axe get pushed onto Thane, despite his claims that he could just rip a tree out of the ground.
 - When harvesting materials, one person, without any buffs, will rolls for how much of it we obtain.
 - We can trade materials for other materials of equal rarity (i.e. one iron ore for one log of equal rarity)
 - One of the knights visits Veil. Despite her protests, Reinna opens the door. Politely.(chronologically, this happened on one of the days between last session and this one). The knight apologizes for Sir Grimbrand's behaviour, and also gives a warning that everyone is expected to be within their homes before midnight. Failure to be in your house after midnight twice will result in being thrown in jail. Reinna relays this information to the party.
@@ -57,3 +57,21 @@
 - We collect 20 iron ore! (Thane is strong)
 - We fail to map any of the area on our way southwest back to the bastion from the iron mine.
 - We make it back into town safely! (after I fed that duo of dragons some more bread)
+
+## Session 3 - Jan 30, 2026
+
+- We depart for the logging quest! We can go either north west, or to the east.
+- We decide to go east in case we encounter the pack of saber tooth tigers, as they are growing in number, and it would be better to encounter them sooner rather than later. Let the record show that Reinna voted that we go north-west to avoid the chance of encountering the tigers.
+- We get ambushed by a Shambling Mound (it looks like a bunch of tree roots with glowy yellow eyes)
+- It deals lightning damage (good to know I guess)
+- Tree.. tentacle (not tendril lol) monster... Yeah this thing looks creepy.
+- It's also resistant to fire.
+- Eren summons Cloud Of Daggers, and this shambling mound, with its grand -3 intelligence, gets the great idea to swing Thane, who it has grappled and restrained, into the cloud of daggers.
+- Meanwhile, I've started to learn how to play rogues, run in, do the stabby stab, then bonus action disengage and run away.
+- It's _also_ resistant to cold damage.
+- It's _not_ resistant to radiant damage though! It does seem to be resistant to a lot of elemental damage though.
+- Not weak to acid damage!
+- Thane and Eren go down, and then it goes and picks me up.
+- The Baguette proves his worth in battle once more! (I dealt the BULK of the damage this fight, dealing 18 damage each of my attacks, except for my final blow against it, where I got a nat 20 and dealt 19 damage instead (would have been 36 but I don't have sneak attack dice for the attack))
+- We limp back to the bastion, terribly wounded, but all alive.
+- The quest results in a failure, but at least we're all still alive!

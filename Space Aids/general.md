@@ -1,0 +1,1 @@
+- Mayhaps we could try making some sort of signal flare to summon some town guards to help us out while outside the bastion. DM said "it wouldn't work at the moment" (asked at the start of session 3)
