@@ -75,3 +75,22 @@
 - The Baguette proves his worth in battle once more! (I dealt the BULK of the damage this fight, dealing 18 damage each of my attacks, except for my final blow against it, where I got a nat 20 and dealt 19 damage instead (would have been 36 but I don't have sneak attack dice for the attack))
 - We limp back to the bastion, terribly wounded, but all alive.
 - The quest results in a failure, but at least we're all still alive!
+
+## Session 4 - Feb 12, 2026
+
+- On Wednesday, 5 of the wednesday group heard the southern gate open, and saw two of the archmages and two of the arch-paladins escorting a hooded figure into the bastion.
+- They were told to return to their houses, and decided to not listen and got beaten up a whole bunch. Including some casts of meteor storm.
+- And Veil happened to see this all.
+- In the morning, everyone except Errandor and Grunt's door's were beaten in. They were sent out at 8:00 AM, instead of the normal noon, and told that if they didn't complete their mission, they'd be brought into the mage tower and subject to electric shock therapy.
+- Their adventure lasted 13.5 hours. When they got back, meteor storm was cast on them again.
+- Turns out the Queen has some 9th level tantrums..
+- The wednesday group found the tindlewood logging sight! They also found the orcs. The orcs sent back a message as well: 'If anyone from the bastion "accidentally" walks into our territory again, then we will "accidentally" siege the bastion.'
+- The wednesday group also found teh gnolls. Southwest of the bastion, hunting because winter is harder.
+- They are this far north because they had to cross the "black scary castly" and "rocky mountain aztec"
+- The Swanmay tribe has also been located, a supplier of medicinal herbs. But, the normal bridge to get to them has been disintegrated.
+- So, with that catchup out of the way, we go to the logging site to collect some lumber!
+- And encounter a duo of werewolves along the way.
+- We had a lovely sidebar discussion about role playing, and playing as the character, and not playing meta and doing the 'optimal' action.
+- So, we beat the two werewolves, but Reinna died in combat.
+- We come out of the adventure with 4 logs of tindlewood lumber.
+- Since only one party member died, they can summon a new hero next week. But, if another hero dies before the week is over (i.e. someone from the wednesday campaign), then there might be complications.
