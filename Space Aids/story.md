@@ -76,7 +76,7 @@
 - We limp back to the bastion, terribly wounded, but all alive.
 - The quest results in a failure, but at least we're all still alive!
 
-## Session 4 - Feb 12, 2026
+## Session 4 - Feb 13, 2026
 
 - On Wednesday, 5 of the wednesday group heard the southern gate open, and saw two of the archmages and two of the arch-paladins escorting a hooded figure into the bastion.
 - They were told to return to their houses, and decided to not listen and got beaten up a whole bunch. Including some casts of meteor storm.
@@ -94,3 +94,37 @@
 - So, we beat the two werewolves, but Reinna died in combat.
 - We come out of the adventure with 4 logs of tindlewood lumber.
 - Since only one party member died, they can summon a new hero next week. But, if another hero dies before the week is over (i.e. someone from the wednesday campaign), then there might be complications.
+
+## Session 5 - Feb 27, 2026
+
+- Thane crafted some gauntlets (for Artemis) over the (two) weeks since the last quest!
+- Thane knocks on Artemis' door and throws the gauntlets he made at the doorstep (narrowly avoiding a sudden duel)
+- Thane also decides to visit Grimbrand (the paladin he dueled with a while ago). There's a lot of sounds of movement from the inside, and Thane can see all kinds of axes _everywhere_ through the open doors of the mansion. Handaxes, battleaxes, greataxes, and more are all being moved around. All of these weapons are mundane. The weapons are being pulled out of storage in preparation for the upcoming double siege.
+- Grimbrand suddenly speaks up from behind Thane, spooking his pet squirrel (oh yeah, that joined the party) off of his shoulder. "What can I do for ya ma boy?!" he exclaims rather boisterously.
+- Thane engages in some small talk about the positions that people will be taking up during the siege. The two adventuring parties will be largly responsible for working together at the southern gate while the veterans will be guarding the eastern gate. The western gate will have a lighter guard posted as an attack is not expected to come from there. The southern gate is expected to have a less intense fight, hence why it's being left to us.
+- Thane proposes a kill competition between himself and Grimbrand, trying to get Grimbrand to train him some more. Grimbrand is pleased with the spunk that Thane showed!
+- We decide to try to find a rare metal mine, or the hide gethering post, planning on heading, then veering to the south east on the back way.
+- We venture east, with Artemis (attempting to) chart the darkness.
+- We _love_ getting four nat 1's out of six damage dice.. haha.. This max difficulty combat started off _great_.. haha..
+- The baguette claims the first kill (as always) and downs the first of the 11 giant toads!
+- I throw some taunts in a french accents at the frogs as two of them miss me.
+- Eren goes down under the might of a frog crit, after another frog crit Thane just earlier.
+- Dwarven resistance to poison saving my absolute life, I end up with 1 HP.
+- I decide that I really don't want to die so I run away and go invisible.
+- Thane revives Eren and just says "welcome back to the land of the living, help us kill Jacques after these frogs are dead"
+- Eren REFUSES to go down for a third time, being saved by Cutting Words (to reduce the to-hit that the frog rolled).
+- I, still invisible and having verified that Marian is stable, give Thane help (advantage on next attack) by whispering "The shadows shall aid you today". Thane is not amused by Jacques' self-preservatory methods of running away and going invisible.
+- The frog goes down, and Thane immediately turns around and grabs Jacques, still invisble, by the neck.
+- Thane questions Jacques about Marian's condition, to which Jacques says that Marian is stable.
+- Thane does not believe that Jacques helped Marian.
+- Jacques squirms out of Thane's grasp and gasps for breath.
+- Marian sniffs out Jacques (we both got a 27!) and promptly stabs me.Jacques goes unconscious. I _was_ at 1 HP after all..
+- Thane reaches to grab Jacques, and Marian stops him. Marian seems to be boasting that Jacques is her kill, and Thane should back off. Thane tries to communicate that Jacques has learnt his lesson (Marian is only speaking in sign language).
+- Thane continues to try to pacify Marian. Thane, unbeknowst to Jacques, takes responsibility for ensuring that Jacques won't display self preservation instincts again.
+- Thane picks up Jacques like a little 4 four suit case that he is and asks if anyone can heal me.
+- Eren heals Jacques.
+- Thane sits Jacques on his shoulder like a little kid and waits for me to come back to consciousness.
+- Jacques awakes in a bit of a panic, the shock of Marian stabbing him being a bit much.
+- Thane, not believing that Jacuqes did anything during the time he was invsible, threatens Jacques that if I try to run away in combat again, Marian won't kill me, Thane will.
+- Thane also does _not_ let Jacques off of his shoulder for the rest of the day. To keep me separated from Marian ostensibly.
+- We somehow survive the frog onslaught. **_somehow_**

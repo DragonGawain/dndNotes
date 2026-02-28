@@ -1,0 +1,1 @@
+- "Worst you can do is stab Eren" - DM to Marian, right before Marian rolled a nat 1 on a to hit, stabbing Eren - Session 5, Feb 27, 2026
