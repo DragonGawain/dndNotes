@@ -128,3 +128,54 @@
 - Thane, not believing that Jacuqes did anything during the time he was invsible, threatens Jacques that if I try to run away in combat again, Marian won't kill me, Thane will.
 - Thane also does _not_ let Jacques off of his shoulder for the rest of the day. To keep me separated from Marian ostensibly.
 - We somehow survive the frog onslaught. **_somehow_**
+
+## Session 6 - March 06, 2026
+
+- Between session 5 and 6, the bastion siege event occured
+- During the siege, Artemis and Eren died
+- All the heroes' houses burnt down
+- This means that we all get a level of exhaustion. Yay!
+- The bastion Fletchers also burnt down
+- Paladin houses Dawnreach and Shieldward were also burnt down.
+- Also the western gate got a surprise attack from the, umm, 80 sabertooth tigers that we and the wednesday group never got around to hunting down when they were a small pack. So, a bunch of un-named NPCs also died.
+- As another concequence, there's a blood moon going on for the next month!
+- All beast type creatures are hostile under the influence of the blood moon.
+- Beasts will also prioritize prone/unconscious people.
+- As the heroes approach the magic circle, we see a group of 12 mages, who will be summoning 2 heroes (cause 2 friday heroes died). One of the 12 mages dies outright.
+- And, down from the heavens, come two individuals, one male and one female.
+- Average size man, bulky but not buff. Sporting the same moustache style that Jacques has!
+- A bunch of descriptions for the female character were tossed around, settling on "spartan warlord amazon".
+- We have some wednesday team people joining us this time! Eryndor and Gaildran are joining us.
+- During the wednesday session, stuff happened and Jacques observed some stuff..
+- The five paladins had a certain individual scrying on the wednesday group for.. some reason.
+- And, they overheard the wednesday group say some stuff that caused all five of the paladins to prepare for war and march out of the eastern gate each with small retinues of soldiers, ready to fight.
+- The fight mages, including the high cleric, also marched out of the eastern gate.
+- Two black clouds full of lightning followed them.
+- The king _also_ marched out the gate, weapon drawn.
+- I also saw a cat woman who I don't recognize walk out the east gate, followed by everyone kneeling to her. (also turns out she's the queen)
+- She walked up to Eryndor and Gaildran, then turned around and went to the paladins.
+- She proceeded to walk up to each paladin, one by one, and sucker punched them, knocking them uncouncious in a single blow. The king then walked up to them, one at a time, and levitated them back into the bastion.
+- Oh yeah, Apollo from the wednesday group also popped in.
+- We begin by collecting lumber. And the trees attack us.
+- Gaildran manages to intimidate some of the trees into leaving (nat 20 intimidation check after a nat 20 to-hit will do that!).
+- We gather 4 whisperash logs.
+- We do some successful mapping!
+- I manage to stumble us into a duo of pixies (lv 4 encounter)
+- Since none of us have an evil allignment, they don't attack us. So our "encounter" was them just watching us. (their stat block is terrifying. It's a good thing they didn't attack us)
+- We stumble into another encounter (lv 2 this time). We mulligan the 9 ogre encounter.
+- We stumble into four black dragon wyrmlings in the swamp (lv 2 encounter)
+- I attempt to persuade them to let us go. Eryndor decides to throw a psychic knife at them. They decide to very pointedly aim at Eryndor.
+- Apollo, who also speaks draconic, begins layering SO MUCH flattery upon these wyrmlings to try to get them to let us pass, despite Eryndor throwing a mind dagger at it.
+- The wyrmling responds "I'll kill it for hurting me, but you can pass"
+- Jack tries to pet one of the wyrmlings while walking past. It snaps at him, but doesn't actually attack.
+- Eryndor very quickly gets knocked down and then double tapped as all the wyrmlings gang up on him. Gaildran does his best to convince Jacques and Apollo to try to convince the dragons to take Gaildran and let Eryndor live.
+- Jacques gives a somewhat lackluster "eh, the meaty one is offering himself to replace the skinny one", Apollo follows up with a very flowery speech to convince the dragons to leave Eryndor alone. Though Apollo also says he doesn't agree with the deal.
+- oh hey, Eryndor died. And the dragons said they would've considered the deal Gaildran tried to offer, but Apollo said he didn't want them to take the deal.
+- Apollo also noticed that when the wyrmlings killed Eryndor and his body turned into ash, dragon D evolved. Apollo notices the acid spitting dragon's eyes glow bright green.
+- After evolving, the dragon now speaks in common; "blood for the dragons. But remember, the swamp belongs to us dragons. The next time you come, be sure to bring us a tribute".
+- We mulligan a trio of griffins encounter.
+- We encounter a single gnoll (lv 1 encounter). Though it has a name, so it's like, a champion gnoll or something.
+- Gaildran perishes to the gnoll. :(
+- The rest of us make it back to the bastion.
+- RIP Eryndor and Gaildran. Your sacrifice from wednesday will not be forgotten.
+- According to DM, we also managed to perfectly dodge finding any new resource deposits.
