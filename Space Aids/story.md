@@ -179,3 +179,40 @@
 - The rest of us make it back to the bastion.
 - RIP Eryndor and Gaildran. Your sacrifice from wednesday will not be forgotten.
 - According to DM, we also managed to perfectly dodge finding any new resource deposits.
+
+## Session 7, March 13, 2026
+
+- We have like, 4(?) wednesday players this week as well.
+- We venture out to gather hide.
+- We manage to find a level 4 combat as our first combat of the night. It's 4 elephants. Yippee.
+- Also blood moon is still going on so there's no way we can talk to them.
+- Real tough fight, I came _very_ close to dying!
+- Apollo the centipede got squished under an elephant that Jack knocked prone.
+- Atheris saves my life (merci beaucoup!)
+- Sir Fin crits and brings down the might of 42 damage.. on the elephant that had 3 HP left.
+- Atum _almost_ kills Jacques with a nat 1, but luckily he has inspiration and rerolls the nat 1, so Jacques lives to see another day.
+- After the last elephant dies, following the near miss from Atum's firebolt, Marian walks the 25 feet over to Jacques, and stabs him, killing him. Umm, that just happened.
+- Apollo casts moonbeam on Marian (dealing a nice 3 damage), then laughs maniacally and moves away, not knowing how to deal with it.
+- Atheris sides with Marian's rational of killing Jacques for betrayal and cowardice.
+- Jack grapples Marian and suggests bringing them back to the bastion to let the authorities deal with Marian.
+- Errand speaks with Marian telepathically, and then casts Dissonant Whispers, _still_ not managing to take her down.
+- Atum gives a speech about how Marian's actions were cowardice in their own right, and how Marian should not have delivered the final blow.
+- Atum and Atheris go back and forth, until Errand speaks up and asks Atum to either kill Marian or not.
+- Suddenly, they blink, and Marian disappears. Also Atheris is suddenly moved outside of the moonbeam AOE. In fact, everyone was moved to seemingly random places.
+- Atum the wizard deduces that time was stopped for a few moments.
+- Meta: for some reason, they all had to roll charisma saves.. a 21 failed.. (was supposed to be wisdom)
+- Atum and Atheris were in mid-argument during the time stop.
+- After the time stop, Apollo also finds a note slapped onto the back of their head, written in blood, reading "I'll take care of this". Apollo shows the note to no one, but asks to speak with his party in private, after they return to the bastion.
+- Atum sets up a bit of a camp, passes around some rations, and picks up the argument with Atheris again.
+- They decide that, isntead of continuing the argument there, they'll go back to the bastion and finish the argument there.
+- As they walk back to the bastion, Apollo sees a bone mask made of a deer skull hanging on a vine. The last remnant of Marian.
+- As Apollo observes this vine, he feels the blood-written note in his pocket heat up. Apollo fully suspects druidic nonesense. Which is a bit strange, considering that the archdruid's whereabouts are currently unknown. Two white wisps float up from the note in his pocket, as it disappears. One wisp goes to the deer bone mask, and the other floats straight up.
+- The one wisp goes up, the other wisp circles the mask twice, then goes down.
+- Apollo sees a flicker of movement by the vine, as a small brown bushy tails jumps off the tree the vine is hanging on, and head northwest (we're E2 from the bastion).
+- When they get back to the bastion, the queen's waiting by the east gate, arms crossed.
+- Meta: they need to do charisma saves upon seeing the queen.
+- They hear in their heads, "stop, sit down".
+- Of those there, only Apollo and Errand recognize the queen.
+- The queen speaks with everyone individually, one at a time.
+- The queen finishes speaking with Apollo and follows him into the barracks.
+- She speaks to them all telepathically (paraphrasing). "Though you are from different parties, you are all mortals. Though I disagree with what happened today, it has been done and cannot be changed. We do not chose the personalities of those summoned, but the two groups must get along."
