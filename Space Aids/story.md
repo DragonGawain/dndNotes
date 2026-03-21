@@ -216,3 +216,30 @@
 - The queen speaks with everyone individually, one at a time.
 - The queen finishes speaking with Apollo and follows him into the barracks.
 - She speaks to them all telepathically (paraphrasing). "Though you are from different parties, you are all mortals. Though I disagree with what happened today, it has been done and cannot be changed. We do not chose the personalities of those summoned, but the two groups must get along."
+
+## Session 8, March 20, 2026
+
+- We have two new characters this time, me (Angela) (formerly Jacques) and Aurora (formerly Marian).
+- Thane approaches Aurora (who's small) and asks if she wants to be put on his shoulder (cause his squirrel is missing). Aurora Holds out her hands for uppies. Thane continues by offering her acorns.
+- The party name was mentioned, and the presence of a "burnt baguette weilding french man" is mentioned, raising Angela's suspicions, which gets cleared up when she's told that he's dead.
+- Thane proves why his allignment is "chaotic chaotic" by asking "can I just randomly tackle people?"
+- My first combat encounter roll of this character is a combat encounter! Yippe!
+- Also despite some balancing changes, I manage to get us into an impossible combat. A gorgon.
+- It's nose seems to be leaking acid.
+- Turns out the gorgon's AC is at least 19.
+- Veil gets petrified by the gorgon's gaze.
+- Everyone else resists the petrification.
+- Atheris finishes it off with a crit guiding bolt.
+- We take a quick trip back to the bastion (we were only 30 minutes out) to un-petrify Veil. The arch-priest happened to be available and waved their hand or something (we kinda skipped over that whole back and forth)
+- We run into two weretigers. (also it's still a blood moon so they're in beast form).
+- We get 2 nat one's this encounter. (I'm one of them!)
+- Thane tries to pet the weretiger and get bitten in response. He retaliates with the wrath of the gods (divine smite).
+- The kitty _really_ likes Thane's hand. (it rolled 2 nat 20's on the to-hit with disadvantage to bite Thane's hand).
+- With two clerics on the party, Jack the paladin decides to take on the role of party healer and gives out some heals instead of dealing the damage.
+- Atheris moves to the front line and gives Veil all the rest of the healing she needs, bringing her back up to full HP.
+- The kitty _really_ **_really_** likes Thane's hand as it gets _another_ crit on his hand.
+- The other weretiger decides that it wants to know what's so interesting about Thane's hand, and goes over to try to give it a nibble.
+- The kitty's go down!
+- We find the boar hunting grounds. When the boars die, they don't turn into ash! We skin them for their hides.
+- We do a whole bunch of good mapping.
+- Session ends a bit early cause DM has to go
