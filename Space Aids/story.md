@@ -280,3 +280,4 @@
 - Diplomacy stated that we continue, but DM said no.
 - Knowledge and RP cannot be done with those who are in the bastion until we make it back there.
 - If we survive the return journey, we get a level up!
+- The Merrows are constantly moving, so just because they were on the other side of the lake this week, they might be on the Swanmay side next week.
