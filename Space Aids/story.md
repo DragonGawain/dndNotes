@@ -279,3 +279,4 @@
 - When we end session in a tribe, we are unable to return to the bastion until the following week.
 - Diplomacy stated that we continue, but DM said no.
 - Knowledge and RP cannot be done with those who are in the bastion until we make it back there.
+- If we survive the return journey, we get a level up!
