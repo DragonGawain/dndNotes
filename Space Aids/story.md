@@ -243,3 +243,39 @@
 - We find the boar hunting grounds. When the boars die, they don't turn into ash! We skin them for their hides.
 - We do a whole bunch of good mapping.
 - Session ends a bit early cause DM has to go
+
+## Session 9, March 27, 2026
+
+- So some stuff happened with the wednesday group...
+- They found the approximate direction of the fire dragon (east southeast).
+- They discovered this by meeting a red dragon wyrmling (whose mom is an ancient dragon and whose grandmother is an great wyrm). Mamma got a wee bit upset and uhh, blew up the quartz mine.
+- Also the world map wraps.
+- Apollo rolls us an encounter with TWO gnoll champions (which, in case you forgot, last time the friday group encountered a single one, someone died!)
+- Also, blood moon is still going! Last week of that!
+- Oh hey, I'm down to 1 HP on turn 1. "fun".
+- The gnoll champions are smart little bastards and keep going after our backline.
+- Thane got double nat 1's and hit Veil..
+- "It'll deal, uhh, 50 damage" said the DM casually.
+- We manage to win. Alive. Somehow.
+- We discover some white water rapids in the river, and a 50 foot waterfall.
+- We encounter a giant crocodile. It seems to be in the mood to snack on french ladies.
+- It chomped on me and tried to drag me away, so I was like "hell nah" and tried to kill it (level 2 inflinct wounds).
+- Through a team effort, we manage to kill it.
+- We made it to the Swanmay tribe! Home of the medicinal herbs!
+- Thane volunteers to be the team diplomat. (I'm only slightly concerned about that).
+- The swanmay try to speak to us in sylvan.. and no one on the party speaks sylvan, so they switch to common.
+- They tell us that the Merrows are on the other side of the lake. By the orcs.
+- They seem to detect that we are not from this world, and ask if we were sent by the king to collect herbs.
+- If we want their herbs and flowers, they first want us to beat them in a duel (and by 'them' it's the queen speaking).
+- She steps up and asks Thane "how hard do you want me to kick your ass". Thane responds by, paraphrasing, "gimme all you got". She smiles and says "I'll go ahead and use my legendary actions then".
+- Thane engages in the duel and lands a crit! He decides to not use spells.
+- Thane gets the queen to about half HP before going down.
+- She then heals Thane.
+- Thane wants another duel in the future. But the queen say that they probably won't be able to duel again, as the guards drag Thane back to the party, as if trash being thrown out. BUUUT, his pockets feel heavy! A 1d100's worth of weight in fact.
+- They tell us to not visit them more than once a month, or they will cut off supplies.
+- Thane also gets some flowers. And also strikes up casual conversation and makes friends with them.
+- We end up staying at the Swanmay tribe overnight.
+- At night, lit up squares return to being d10 rolls.
+- When we end session in a tribe, we are unable to return to the bastion until the following week.
+- Diplomacy stated that we continue, but DM said no.
+- Knowledge and RP cannot be done with those who are in the bastion until we make it back there.

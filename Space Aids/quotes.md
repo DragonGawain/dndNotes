@@ -1,1 +1,3 @@
 - "Worst you can do is stab Eren" - DM to Marian, right before Marian rolled a nat 1 on a to hit, stabbing Eren - Session 5, Feb 27, 2026
+- "Murder is in my blood" _rolls a nat 20_ - Aurora, Session 9, March 27, 2026
+- "The french girl is getting kidnapped [by the giant crocodile]" - DM, Session 9, March 27, 2026
