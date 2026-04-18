@@ -282,3 +282,27 @@
 - If we survive the return journey, we get a level up!
 - The Merrows are constantly moving, so just because they were on the other side of the lake this week, they might be on the Swanmay side next week.
 - Apollo owes the friday group 3 uncommon logs
+
+## Session 10, April 10, 2026
+
+- I wasn't there that session
+- They found the goblin tribe.
+- If you speak goblin, they are neutral to you!
+
+## Session 11, April 17, 2026
+
+- The marrow quest has been "completed" - they attacked the orcs instead of tha bastion. Which resulted in the orcs losing some territory, and the marrows being wiped out.
+- Jack wished for a mechanical companion. It exists somewhere in the world, looking for him.
+- We spend like, 90 minutes drawing cards from the Deck of Many Things.
+- Jack dies. RIP.
+- I fight my clone. We poke each other with finesse daggers (+5 to hit, +2 dmg) until eventually I manage to win.
+- DM is nice and lets us gather some materials
+- Brigid gets thrown back into the bastion by an ogre. Her catatonic-lightning-struck-star-filled-body gets thrown into the bastion. And Arthur catches her, with a 33 (after using inpiration from a 1, that became a 13). he skids back into the dirt from the force of the throw. The ogre, seeing her getting caught, nods, and leaves.
+- Atheris, who's standing nearby, heals her (after the knockback from the throw/catch took her final 2 hp).
+- Also due to the cards, Angela is locked in her room, running around and trying to punch the walls and stuff.
+- Funny session overall!
+- Angela escapes overnight and runs into Apollo. And proceeds to punch him. And then the assassin on the roof behind her jumps down and stabs him. Apollo lives.
+- Apollo casts entangle. I match the DC, despite my -2 to strength.
+- The second cats of entable hits.
+- Apollo watches as Angela punches herself to sleep exhaustion.
+- Apollo carries Angela back into her room, lays her on the bed, and then writes a note (in druidic) on the door: "crazy woman inside. Needs psychiatric help. Enter at your own risk."
