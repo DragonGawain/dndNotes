@@ -85,7 +85,7 @@
 - Their adventure lasted 13.5 hours. When they got back, meteor storm was cast on them again.
 - Turns out the Queen has some 9th level tantrums..
 - The wednesday group found the tindlewood logging sight! They also found the orcs. The orcs sent back a message as well: 'If anyone from the bastion "accidentally" walks into our territory again, then we will "accidentally" siege the bastion.'
-- The wednesday group also found teh gnolls. Southwest of the bastion, hunting because winter is harder.
+- The wednesday group also found the gnolls. Southwest of the bastion, hunting because winter is harder.
 - They are this far north because they had to cross the "black scary castly" and "rocky mountain aztec"
 - The Swanmay tribe has also been located, a supplier of medicinal herbs. But, the normal bridge to get to them has been disintegrated.
 - So, with that catchup out of the way, we go to the logging site to collect some lumber!
@@ -304,5 +304,34 @@
 - Angela escapes overnight and runs into Apollo. And proceeds to punch him. And then the assassin on the roof behind her jumps down and stabs him. Apollo lives.
 - Apollo casts entangle. I match the DC, despite my -2 to strength.
 - The second cats of entable hits.
-- Apollo watches as Angela punches herself to sleep exhaustion.
+- Apollo watches as Angela swings punches until sleep exhaustion.
 - Apollo carries Angela back into her room, lays her on the bed, and then writes a note (in druidic) on the door: "crazy woman inside. Needs psychiatric help. Enter at your own risk."
+
+## Session 12, April 24, 2026
+
+- Wednesday group had thier first death(s)! Two people on their team died.
+- Some health potions may be secretely poison potions.
+- We stumble into a quartet of weretigers! They seem to have a thing for Arthur and decide to all go after him..
+- Veil got cursed, then died (dead died) and got turned into a weretiger.
+- DM gets like, 4 nat 20s in the fight. All against Arthur.
+- DM's nat 20 count is up to 12. Our nat 20 count is at a grand _inhales_ ONE.
+- At this point, after Veil has transformed into a weretiger and Arthur went down twice, Brigid decides to do bard things and tries to talk us out the cats eating us all (or more likely, turning us into more cats). Rolled a 19 on the persuasion, so who knows, maybe it'll work!
+- A good speech delivered! Full of promises of praise for the cats. Promises of writing songs about them.
+- Arthur's mount, who had been lent to me, picks me up and runs out of the fight. So uhh, I'll live at least...
+- The cats decide to let Brigid leave, but demand the others as sacrifice.
+- Turns out the only cat we didn't hit was the pack leader, so uhh, I guess it's a good thing we didn't hit it..
+- Brigid safely leaves the combat zone! Arthur is offered a deal; if he resists the curse of the last werecat, he too may leave.
+- Arthur uhh, doesn't resist the last curse..
+- So, after all's said and done, Arthur and Atheris need to face off against the three werecats (pack leader decides to just, sit back and watch). If they manage to beat the three, the pack leader will let them live!
+- Arthur rolls a nat one (it'll make up for the 12 nat 20's the DM's gotten...) but DM goes "hem hem" and gives him a free reroll. What a nice guy!
+- Oh yeah, also, today is Thane's wife's birthday, and she caused some chaos in the middle, rolling three d20s and getting and 18, and 18, and a 20. She continues to be a dice wizard and always roll high.
+- DM gets his thirteenth nat 20 (targetted at Arthur of course..).
+- Arthur dies as well. Getting hit for an 18 on his 17 AC, and getting dealt 9 damage to his remaining 8 HP. RIP Arthur. You will likely be remembered as "that wednesday member who got afflicted by the friday curse".
+- Atheris' spits the last words of "fuck you?" at the last werecat as they very nearly die (but live with 6 hp!)
+- A heal, just to fall back to 6 hp later, the 1v1 continues.
+- Atheris' strategy of "heal myself while spiritual weapon takes out the werecat" seems to be working pretty well!
+- In the midst of the 1v1, Atheris rolls the second nat 20 of the party!
+- The cat says "begone you healing cheater", to which Ateris responds "if you ain't cheating you ain't doing it right".
+- We return to the bastion with a large discover: the discover of the force dungeon!
+- We name the force dungeon "The Legion's Curse", after the curse which seems to follow the friday group.
+- This force dungeon was the "scary aztec mountain" that the gnolls that the wednesday group encountered in session 4 (my session 4 notes).
