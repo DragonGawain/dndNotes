@@ -2,3 +2,5 @@
 - "Murder is in my blood" _rolls a nat 20_ - Aurora, Session 9, March 27, 2026
 - "The french girl is getting kidnapped [by the giant crocodile]" - DM, Session 9, March 27, 2026
 - "The power of gingers compels you" - Brigid, Session 11, April 17, 2026
+- "It's looking at a juicy female laying on the ground" - DM, Session 13, May 01, 2026
+- "The archmages are touching you" - DM, Session 13, May 01, 2026

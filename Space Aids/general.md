@@ -7,3 +7,15 @@
 - Red dragon wyrmling was named Smolder.
 
 - The swanmay tell us to not visit them more than once a month, or they will cut off supplies.
+
+---
+
+Dungeons:
+
+- Each floor, we will fight an encounter.
+- After the encounter, we can choose to descend deeper, or ascend.
+- If we ascend, we will need to fight our way back upwards.
+- Every 5 floors, there is a chance that we will find a settlement.
+- Every 5+1 floors (eg floor 6), there will be a miniboss.
+- We will always do all the floor encounters, because all creatures have a chance to drop the elemental hide/crystal/ore/wood...
+- All dungeon floor encounters are scaled to be a medium difficulty fight, scaled off of number of party members and level.

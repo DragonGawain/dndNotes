@@ -335,3 +335,30 @@
 - We return to the bastion with a large discover: the discover of the force dungeon!
 - We name the force dungeon "The Legion's Curse", after the curse which seems to follow the friday group.
 - This force dungeon was the "scary aztec mountain" that the gnolls that the wednesday group encountered in session 4 (my session 4 notes).
+
+## Session 13, May 01, 2026
+
+- On wednesday, a silver dragonborn walked into the bastion, before falling unconscious.
+- He is currently being held in the mage tower, being studied.
+- His belongings were _also_ studied, including a rough map of a trail leading off to the west, including the location of the cold dungeon!
+- On wednesday, they ventured to the force dungeon, and were allowed to keep all the materials they brought back.
+- The wednesday group also tells us that to build an airship, we need a magic core, which can only be manufactured by the Niblewright tribe, which we have no idea where to find.
+- Also new character Rhyston. All the clerics, paladins, and celestials hate him for today.
+- Also he's chatoic evil cause he lost in a duel against his evil self. (cards of chaos stuff)
+- We go get some iron ore.
+- Aurora nat 1s and hits me with an ice knife, and blames it on Rhyston. I believe Aurora! It was totally Rhyston who hit me with that ice knife!
+- Rhyston like "hah, behold chaos!" and casts moonbeam centered on Thane, who also happens to be surrounded by swarms of ravens. "Aimed at the raves!" they claim.
+- Thane shoots Rhyston with longbow, and then punches him in the face after all the ravens are dealt with.
+- Also Aurora tells Thane that they're the one who hit me, but also asks Thane to not tell Angela.
+- Rhyston responds by spitting on Thane's boots and turning to walk away.
+- Thane responds by taking a swing with his greatsword.
+- In retribution for Thane's actions, the gods sigh in disappointment, and bestow upon him two cards of chaos in punishment; Scorn, and the Nine of Wands.
+- For the next three days, Thane has -2 of one of dex/con/str (chooses con)
+- Thane no longer needs sleep, but can never again benefit from a long rest. (which means no recovering spell slots of free smites! So uhh, yeah... our paladin is kinda crippled...)
+- At the hide hunting grounds, we encounter a dozen ridge boars. Aurora says "I don't care who I hit. I cast fireball".
+- Thane walks up to Rhyston, turns his back, and says "if you hit me, I will impale you on my sword". Rhyston walks away.
+- We don't have time to go to the force dungeon today, so we return after collecting some iron ore and some hide.
+- When we return, we find a very dizzy dragonborn flanked by two archmages.
+- The archmages look at Rhyston and say "huh, I'm surprised you lot didn't kill him". To which I respond "I was tempted to, but I didn't!".
+- They then push the drunk dragonborn towards us as say "he's your problem now". He's on 'at least 16 different types of drugs'.
+- Thane's curse gets lifted! In exchange for two new minor curses.
