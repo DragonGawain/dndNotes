@@ -19,3 +19,5 @@ Dungeons:
 - Every 5+1 floors (eg floor 6), there will be a miniboss.
 - We will always do all the floor encounters, because all creatures have a chance to drop the elemental hide/crystal/ore/wood...
 - All dungeon floor encounters are scaled to be a medium difficulty fight, scaled off of number of party members and level.
+
+- Inside elemental dungeons, if we go down 3 times, we get a permanent weakness to that element.

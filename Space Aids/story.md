@@ -362,3 +362,11 @@
 - The archmages look at Rhyston and say "huh, I'm surprised you lot didn't kill him". To which I respond "I was tempted to, but I didn't!".
 - They then push the drunk dragonborn towards us as say "he's your problem now". He's on 'at least 16 different types of drugs'.
 - Thane's curse gets lifted! In exchange for two new minor curses.
+
+## Session 14, May 08, 2026
+
+- Session didn't really happen cause discord issues caused a bunch of people to be unavailable.
+- So, we did a bunch of free (i.e. combatless) resource collection.
+- Oh yeah, also I draw two cards of chaos.
+- Then everyone also draws some cards! (except Brigid shockingly enough)
+- ...Aaaaaand then she pulled a pair of cards as well.
