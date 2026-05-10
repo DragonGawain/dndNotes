@@ -370,3 +370,60 @@
 - Oh yeah, also I draw two cards of chaos.
 - Then everyone also draws some cards! (except Brigid shockingly enough)
 - ...Aaaaaand then she pulled a pair of cards as well.
+
+## Session 14.5 - special May group dungeon (spooky dungeon), May 09, 2026
+
+- On saturday night (i.e. the night of the session), the paladin's of the bastion invite all who are willing to explore a dungeon that they have heard rumors of. "There may be magical stuff inside!" they say to encourage us to venture forth.
+- As we go north west towards the dungeon, we pass by the orc tribe village. They sound their war drums as we approach.
+- We then encounter a quartet of orcs close to the dungeon. They were speaking amongst themselves in Orcish as we approach, but turn towards us half-aggressively as we get closer.
+- They seem especially unhappy about the mounts that some of us have.
+- One of the orcs holds up their scimitar and bellows out a command as we approach, telling us to stop.
+- The orc speaks and says in common "Mortals of the bastion of non-green skins, why are you here?"
+- Thane steps forward and says "uhh, we're here to explore a dungeon. I think?"
+- To which the orc replies "we should fight you for the grand loot inside the dungeon. However, our expedition seems to have encountered some trouble. If you rescue our leader and bring them out of the dungeon, we will tell the troops to not kill you"
+- The orc also informs us that we must solve four puzzles before opening the final boss door.
+- Their leader trapped in the dungeon won't attack us "as long as we don't look like a skeleton", according to the orc lady.
+- Thane also asks the orcs to look after his horse, and informs them that the horse enjoys playing fetch, and demonstrates by tossing a skull.
+- We roll initiative as we enter the dungeon and explore in initiative order.
+- Some skeleton type monster appears before Sir Fin and throws a spear, which pierces right through his magical shield. (Also the DM's first roll of the night was a 19. That bodes well).
+- As Thorian (the paladin dragonborn in full platemail) steps onto the whicker bridge that leads to the other side of this river that's flowing so fast that we can't even see the movement, the DM asks "how much do you weigh?" The answer, including gear, is 260 lb!
+- He then asks Brigid, who is also on that bridge, for a dex save, and athletics from Thorian. They both get 21's, so all is good! Except that the bridge crumbles away.
+- As the wood of the bridge hits the water, it disintegrates.
+- Thane, seeing the javelin stab through Sir Fin's magical shield, gets excited for the upcoming fight to the death and runs up to the javelin throwing skeleton.
+- Thane's first to-hit roll of the night is a nat 1!
+- Thane's and Sir Fin venquish the skeleton! Sir Fin, upon slaying the skeleton, demands that Thane heal him. Thane, being taller, puts his hand on Sir Fin's head and says "you're pretty cute, guy in armour. Why don't you make me next time?" (and yes, THane does heal Sir Fin)
+- I step onto the other bridge, and it collapses as well under my weight and Aurora's. My legs get cut off from the knees down as I barely get to the other side of the collapsed bridge.
+- Aurora asks Thorian to pick up Angela, and walks up to Thane and says "Hi Thane! Pick me up! Also Angela isn't useful anymore". To which Thane picks her up and replies "well, she wasn't useful anyway" and begins walking deeper into the dungeon.
+- I don't hear the conversation due to the pain.
+- After their little secret conversation, Thane puts down Aurora.
+- Thane thinks he spots a tavern and moves towards it, just to find a greataxe swinging towards his chest, as a skeleton ambushes him.
+- Thane is more concerned about his potential alcohol being knocked over than the greataxe in his chest.
+- Sir Fin, apun slaying the greataxe wielding skeleton, jumps up onto the table, and accidentally knocks over the mugs on the table. Thane, seeing the golden liquid spilling from the mugs, finds his fingers twitching towards the greataxe on his back.
+- Atheris moves up and does some cleric things, casting Sear Undead. To which all the undead passed the save so nothing happened. Thankfully, Atheris' little light spirit companion hit one of the skeletons!
+- Thorian picks me up to get around the whole "I have nothing below my knees so can't really walk" thing.
+- As Thane moves in deeper, he calls back "uhh, guys, I might need a little help in here..."
+- Sir Fin apparently discovers something and calls out "I found the way!"
+- Meanwhile, the legion facing Thane takes aim, as 12 javelins are thrown at him. 7 of the 12 hit.
+- Aurora joins Sir Fin by the group of doors and pushes on one of them. It opens safely!
+- Sir Fin enters a small alchemy lab where there is a green glowing orb.
+- He studies the flowing green orb, rolling an 18!
+- Initially, it looked like it was embedded in the table, but upon inspection, it looks like there are grooves in the table that the orb can rest in. Also, it's 30 lb.
+- So it turns out that when you have a massive aura that gives everything advantage and the enemies get into melee range, they all do serious big damage.
+- Atheris' light spirit companion Helios is slain. The skellly's didn't like the light.
+- Aurora notices a piece of paper that is glowing green.
+- Thorian slays another skeleton.
+- While Thane, Thorian, Brigid, Atheris, and I are engaged in deep combat, Aurora and Sir Fin are off exploring and doing puzzle things! Aurora tries to push open another door, and it feels like it's locked.
+- Thane slaughters the rest of the skeletons and goes "yeah, murder woohoo!"
+- We solve the puzzles yippee!
+- We then get dragged into the exit portal, getting pulled into a different plane of existance, one at a time.
+- Also we never found that orc leader, so, uhh, yeah...
+- When we arrive, the Oneiric Lurker welcomes us to its domain.
+- Shadows begin to swirl around us all. Our eyes become heavy, as if we want to sleep..
+- It begins by unleashing a 30 foot aura, requiring a wisdom save, else they take psychic damage and fall asleep.
+- Also it gained 9 temp HP. It rolled for temp HP a number of times equal to the number of people it made fall asleep.
+- It's a gruelling fight. This ooze monstrosity thing has an AC of like, 19. It's immune to necrotic damage (so there goes my favourite spell of Inflict Wounds). It keeps putting us to sleep. Thorian was asleep for the first like, 8 rounds of combat.
+- At some point, Brigid rolled a nat one and hit Thane, walking him up.
+- Also I was knocked down to 0 HP at some point. Atheris res'ed me with a mass healing word.
+- Thorian finally wakes up, sleepily walks closer to the ooze, then casts Shield of Faith on himeself.
+- Aurora finishes it off with a firebolt!
+- After the combat, we walk into the void and wake up in the bastion.
