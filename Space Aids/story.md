@@ -427,3 +427,50 @@
 - Thorian finally wakes up, sleepily walks closer to the ooze, then casts Shield of Faith on himeself.
 - Aurora finishes it off with a firebolt!
 - After the combat, we walk into the void and wake up in the bastion.
+
+## Session 15, May 15, 2026
+
+- By role of nobody else voicing a proper opinion, I march the team south west, towards what will surely be our demise.
+- We safely get to the tindlewood forest.
+- We encounter a duo of adult forest drakes when we get there. Brigid attempts to talk them down, and speaks to them in draconic:
+- All right you giant scaly sunshine, listen up. We're not here to redecorate your forest or steal your favourite trees. We just want some fallen trees. Y'know, the stuff that's of no use to you unless you've developped apposable thumbs and a passion for carpentry. We get our wood and you get your territory.
+- In response, it walks up real close and stares into Brigid's eyes, staring _deeep_ into her soul. It doesn't speak (it can't speak). It boops its nose on the flat side of her dagger, then steps back, looking at her expectantly.
+- Brigid sighs and holds the dagger out to the drake.
+- It shakes it's head no at her.
+- Atheris suggests that the drake might want to play fetch.
+- The other drake walks up behind Thorian and boops _its_ nose on Thorians battleaxe, and then look at him expectantly, and end its turn. (It specifically boops the metal part of the battlaxe).
+- Apollo offers the head of his mundane steel axe, and it shakes its head no. (Thorian is left with a stick, and a steel axe head).
+- I find a bag with three iron ore on Thane's horse and, remembering Atheris' suggestion, try to chuck the bag somewhat away from the drakes and say "fetch?". It falls basically at my feet (I roll a 0 and a 6, with my -2, leading to a 0 and 4).
+- The drakes start munching on the iron ore, tails wagging.
+- We collect 2 wood.
+- We stumble into a combat right after collecting the wood. We encounter a single cyclops sentry.
+- Thorian, who speaks giant, offers to speak to the big guy. He says:
+- Hey tough guy. Me and my friends here mean no harm. We just wanna get on by. Can we just like, move past you and be on our merry way?
+- It speaks in a deep gutteral voice "thou shall pass if you give me the round bear as food".
+- Thorian replies: "it's uhh, made of raw magic, it's not, corporeal.. You wouldn't get any meat out of it"
+- It responds "Then eat rock. Or given other one for food."
+- It throws two boulders at me.
+- Atheris brings me back from the dead and gives me 4 temp hp.
+- And then it starts walking away to pick up more boulders.
+- It chuckes two more boulders at me, bringing me down to 4 hp (temp saved me!), and then goes to pick up more boulders!
+- Brigid heals me back up to full (cleric built for main healing with a minor in damage getting all the heals this combat is kinda silly).
+- It then smashes itself with the next boulder, which somehow turns it into a club, which he promptly brings down onto Thorian's head.
+- We encounter the Latawiec (from the quest board) as we make our way towards the force dungeon.
+- As we begin to walk onto this battlefield, it begins to get dark. Despite the sun still hanging in the sky, we feel a sense of darkness and foreboding overwhelm us. As if what we are about to face is not from this world. As we face the Greater Latawiec, it screams at us in every language at the same time, telling us that it will drink our blood by the end of the day.
+- It opens up with a beam of dark-lightning damage. And I fall off the horse (cause it dies).
+- I blast it's face with a third level chromatic orb dealing 34 damage. Aaaand then my spiritual weapon got double nat 1s on it's 2d8 damage dice.
+- Rhyston calls down a moonbeam to blast the creature, causing it to revert back into it's true form (the crow form).
+- And we kill it round one!
+- As its body begins to turn to ash, it screams again in all languages; "I'll be back, and more powerful then you can ever imagine! Be it in my true form, or my vampire form."
+- Also, Thorian falls unconscious as he sees a vision of Camazotz , the one who failed to summon the creature we just fought.
+- Camazotz does some psychic shenanigans and gives a parting blow of 41 thunder damage to Thorian. Also, he's unconscious for the next 10 minutes.
+- Also also, my aura of "everyone within 30 ft has advantage on everything" wears off.
+- On our journey maping out a faster route from the bastion to the force dungeon, we stumble in Mutated Savana Wyrms. Three of them!
+- I miss with Chromatic Orb, then crawl out of the line because, quote "wait, it might have a breath attack, I'll go this way". It then walks up to the rest of the rest of the party and uses its breath attack on them.
+- Rhyston becomes a bear and continues to beat up on Tatzelwyrm C. Ingrid, not liking A walking up to the party and breathing poinson on everybody, nat 20's A.
+- I get knocked out of the map (but my clone stays in the combat!) which is like, the pinnacle of my strategy, so I'm completely A-OK with that!
+- I lob a chromatic orb at third damage, do terrible damage (four 2's and a 7 out of 5d8). I do get the bounce, but the bounce attack misses.
+- Thorian slays the first wyrm!
+- I bring Brigid back to life with a Healing Word, and Toll The Dead to slay the second Adult Grassland Tatzelwyrm! Life outside the map is swell.
+- After the last wyrm is slain, we deal with the leftover effects of poison.
+- We fix the poison and make it back to the bastion safely.

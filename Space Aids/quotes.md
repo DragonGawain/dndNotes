@@ -4,3 +4,5 @@
 - "The power of gingers compels you" - Brigid, Session 11, April 17, 2026
 - "It's looking at a juicy female laying on the ground" - DM, Session 13, May 01, 2026
 - "The archmages are touching you" - DM, Session 13, May 01, 2026
+- "I wouldn't try to kill the dreams of a player trying to do something cool. (pause). Unless his name is Apollo." - DM, Session 15, May 15, 2026
+- "It's not often you hear 'attempted murder' framed as efficiency" - Brigid, Session 15, May 15, 2026
