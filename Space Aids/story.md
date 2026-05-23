@@ -474,3 +474,32 @@
 - I bring Brigid back to life with a Healing Word, and Toll The Dead to slay the second Adult Grassland Tatzelwyrm! Life outside the map is swell.
 - After the last wyrm is slain, we deal with the leftover effects of poison.
 - We fix the poison and make it back to the bastion safely.
+
+## Session 16, May 05, 2026
+
+- Grunt finally got me my legs! Yippee! But, my max HP is still reduced by 10 for this session. It'll be restored for next week.
+- The wednesday team nearly located the robot tribe, which would allow us to build an airship, but the swamp was too dangerous and they had to head back to the bastion.
+- We decide to hunt down the potentially world ending Necroficer, instead of seeking out the robots.
+- On the way, we encounter a Galeb Duhr (basically a small moving mountain). (DM gave us spooky "oh you might TKP" vibes as we encounter this thing).
+- Thane tries to convince the rock guy to leave by rolling two boulders at it.
+- It responds by going up to the boulders, throwing them up in the air. They turn into miniature versions of himself and land on his shoulders. He flexes off at Thane.
+- Thane, recognizing the challenge, tries to outflex the boulder. Dzurek, with +5 strength, rolled an 11. Thane rolled a 7. It turns away from Thane dissapointed and tried to continue outflexing people. And he rolls a 7. Ingrid manages to outflex the guy.
+- Upon being outflexed, the rock leaves us be.
+- On our journey, we also stumble across a Dhampir castle. The castle design is very similar to the castle at our bastion. But instead of soft yellow flames, this castle is surrounded by blood red flames.
+- The beings we see peering out from behind the walls stare at us with blood red eyes. The castle itself exudes darkness and seems to deny the light of the sun.
+- Thane gets excited upon seeing this.
+- We encouter some Satyrs, and Brigid (our bard) gets challenged to a fiddle-off (the devil went down to georgia style).
+- If Brigid beats them, she'll get a wonderous item.
+- Brigid got out-performed, so the satyrs stole her lute and vanish. (One might even say she got lute-ed!)
+- We then also encounter a group of 5 trolls.
+- The troll drops it's arm on the ground, and the arm then starts attacking stuff.
+- In the midst of the chaos of the fight, Thane chugs a cronk cronk potion of chaos (sage green flavour!)
+- The DM responds with "roll a d6". Thane rolls a 6.
+- Each creature within 10 feet of Thane (including himself) must succeed a DC18 dex save or take 6d6 random damage type (cold) damage.
+- Also for the rest of the day, he can use his reaction to detonate again.
+- Aurora and Rhyston go down. Atheris mass healing word's and brings them back up.
+- I miss with 3rd level chromatic orb. Thrice (inspiration)
+- Ingrid channels her inner chaotic evil goblin and attacks Thorian.
+- Thorian goes down to a troll. The 6 damage that Ingrid did mattered.
+- Atheris uses genie magic to cast chromatic orb (first level), and hits. It bounces to another troll (we're fighting a total of five of them btw. These things are NAHHH-STEEE)
+- My final third level chromatic orb hits troll C! It bounces... to Ingrid. Then bounces again and hits troll E!

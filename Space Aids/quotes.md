@@ -6,3 +6,8 @@
 - "The archmages are touching you" - DM, Session 13, May 01, 2026
 - "I wouldn't try to kill the dreams of a player trying to do something cool. (pause). Unless his name is Apollo." - DM, Session 15, May 15, 2026
 - "It's not often you hear 'attempted murder' framed as efficiency" - Brigid, Session 15, May 15, 2026
+- "Can't I chose to kill [the party]?" - Thane, Session 16, May 22, 2026
+- "The limb will then try to avenge it's fallen.. body" - DM, Session 16, May 22, 2026 (troll combat)
+- Thane DEMOLISHES the last troll with a big 45 damage hit (and that was a bit low considering how much he pumped into the attack)
+- Thane honours my wish to finish my dual with the troll hand (which has been onging this entire combat). Rhyston, doesn't care and moonbeams it.
+- We all manage to live the five troll combat!
