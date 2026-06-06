@@ -11,3 +11,4 @@
 - Thane DEMOLISHES the last troll with a big 45 damage hit (and that was a bit low considering how much he pumped into the attack)
 - Thane honours my wish to finish my dual with the troll hand (which has been onging this entire combat). Rhyston, doesn't care and moonbeams it.
 - We all manage to live the five troll combat!
+- I have died five times. How do you think I'm doing? - Rocky (Thorian's polar bear mount), Session 17, June 05, 2026

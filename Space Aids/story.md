@@ -475,7 +475,7 @@
 - After the last wyrm is slain, we deal with the leftover effects of poison.
 - We fix the poison and make it back to the bastion safely.
 
-## Session 16, May 05, 2026
+## Session 16, May 22, 2026
 
 - Grunt finally got me my legs! Yippee! But, my max HP is still reduced by 10 for this session. It'll be restored for next week.
 - The wednesday team nearly located the robot tribe, which would allow us to build an airship, but the swamp was too dangerous and they had to head back to the bastion.
@@ -503,3 +503,25 @@
 - Thorian goes down to a troll. The 6 damage that Ingrid did mattered.
 - Atheris uses genie magic to cast chromatic orb (first level), and hits. It bounces to another troll (we're fighting a total of five of them btw. These things are NAHHH-STEEE)
 - My final third level chromatic orb hits troll C! It bounces... to Ingrid. Then bounces again and hits troll E!
+- We level up to level 6!
+
+## Session 17, June 05, 2026
+
+- A wednesday group manner managed to piss off the king, by saying that he would enter the queen's bedchambers. At night. That made the king pretty upset. So, he instead entered the queen's dream at night. And so now he's in a coma for a week. (he got off light).
+- Thorian has a bit of a heart-to-heart with Rocky (his polar bear mount).
+- Rocky responds telepathically; "I have died, five times. How do you _think_ I'm doing?"
+- Rocky, after haring Thorian apologize and have this heart-to-heart, watch as Rocky stands up on his hind legs and clap his hands. We all see nothing. Thorian sees a book appear that reads "contract". We then all watch as Rocky waves his paws in air, while Thorian sees Rocky flip through the pages of the 10 page contract book.
+- If Thorian is to die, Rocky gets Thorian's soul. (Rocky promises to take very good care of it, considering that he guided Thorian after falling from the sky). And, if Thorian can manage to go five adventures without letting Rocky die, Rocky will let Thorian use his special ability.
+- We all see Thorian sign his name in blood. We all see the name disappear in mid-air.
+- Also, Rocky tells Thorian that his name isn't Rocky. "What do you MEAN your name isn't Rocky?!?!".
+- We venture east, towards the swamp, where we've been hearing a mysterious noise for the past couple weeks.
+- We encounter a duo of Ghast Gravecallers on our way to the source of the noise.
+- These creatures with very long and creepy tongues cast ranged spells to frighten us, being close to them poisons us, and necrotic damage heals them. Kinda annoying creatures, but like, not the toughest.
+- Thorian remembers that lay on hands can cure the poisoned condition!
+- It starts doing kinky sutff with its tongue. Like putting it down Thorian's ear.
+- This session has been a bit, uhh, wild. We've had some crazy quotes such as "it tongues the woman" and "I'll use five of my hand points". (also some technical difficulties and distractions)
+- Thorian's toppling and shield bashing _FINALLY_ procs! Against the enemy with ONE HP left! Also, Brigid goes next. And as a bard, would typically use a ranged attack. Which has disadvantage against prone creatures.
+- Brigid instead just walks up to it and stabs it with her special dagger.
+- And we fine the Nimblewright tribe! AKA the machine folks! AKA the people we had to find for the airshop core!
+- We approach them and they go "clickety-clackity' at us.
+- We call it a night after that whole thing.
