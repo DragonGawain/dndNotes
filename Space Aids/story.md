@@ -525,3 +525,60 @@
 - And we fine the Nimblewright tribe! AKA the machine folks! AKA the people we had to find for the airshop core!
 - We approach them and they go "clickety-clackity' at us.
 - We call it a night after that whole thing.
+
+## Session 18, June 12, 2026
+
+- We make it back to the Niblewright Tribe without any combat.
+- They recognize us at the gate.
+- The war priest walks down to the gate to greet us. The war priest opens their book, says something in a language we don't understand, then says in a language we _do_ understand; "come, follow me".
+- As we walk through the city, we note that the buildings are not what we would consider "normal". Instead, the standard building seems to be more factory-like.
+- Seven towering blue orbs sitting in towers around the most majestic structure in the tribe. Lightning arcs between the towers with orbs.
+- Two great mechs open the great doors, and we hear their internal mechanisms creaking with the strain.
+- We see the Lord sitting on a throne, with a map on the table in front of him, seemingly monitering the whole land. He seemingly sighs, as the war priest kneels, then take his seat next to the lord.
+- As we step forward, we feel all the strength in our bodies drain.
+- The spellcasters of the party feel their conenction to their gods be severed. Spells cannot be cast within this hall. Basically, all of our class abilities fade as we cross the threshold into the hall of the lord.
+- As Aurora steps past the threshold of the hall, the attunement to her armor dissipates, and she collapses face first onto the floor, her body being unable to carry the weight of the armour.
+- Aurora's magic armour was normal person sized, and got shrunk for their small size. So, when stepping past the threshold, it suddenly expanded back to normal person size.
+- We spend a full minute scrambling around trying to get the magical armour off of Aurora.
+- Of the seven pieces of armour, we get 5 of them off. Between a total of 60 rolls, we only got 5 above 20 (to be fair, half of us have negative modifiers)
+- Aurora asphixiates and goes unconscious after 12 rounds of rolling.
+- We finally get the last of the armour off!
+- Rhyston pours a health potion down Aurora's throat.
+- Aurora tries to flee, but the guards don't let her leave. We hear a voice speak; "try to leave again, and there will be conflict"
+- Aurora ignores the warning, and gets smacked back into the hall, and knocked unconcious again.
+- Atheris picks up Aurora, force feeds her a potion, and doesn't let her down, ensuringt hat Aurora doesn't try to run away and antagonize the mech guards again.
+- Rhyston decided to also be a chaos gremlin, and moves to the side of the stairs.
+- The lord nods approvingly at Rhyston, and requests all weaponry and magical focii to be placed on the tables to the side of the stairs. Failure to oblige will result in forced eviction.
+- Brigid notices that the tables are not made of gold, but are made of 'fake gold', AKA copper.
+- As Brigid puts her bow on the table, it turns into a little stone on the giant statue behind the table.
+- My mystical items blings up the golem in front of me as it dons my mystical gear including two magical focii, a ring, a shield, and, after an afterthought, toss my dagger on as well.
+- As Atheris approaches the right side (which Thorian, I, and Ingrid deposited items on), an error appears. The king, after being slightly startled says "oh, golem is full. Go to the left table".
+- Atheris, holding Aurora and shaking her, deposits her staff onto the table.
+- Atheris' scrutiny discovers Aurora trying to hide a ring.
+- Upon Aurora's urging, Atheris puts Aurora on the table. Aurora turns into a stone golem. The king clears his throat and says "this will cause a diplomatic problem..." as Aurora is just, statue-ified and is told to go make a new character.
+- After we all deposit our weaponry and shields, we proceed forward.
+- As we pass through the hall, the guards lining the hall scan us, verifying that we are not trying to hide any unauthorized items. The Cronk Cronk potions of chaos are deemed to NOT be contraband.
+- Rhyston moves to the left of the hall and looks at the sarcophagus. It reads "here lies the first great king". Rhyston murmurs a little prayer and checks out the right sarcophagus. It reads "here lies the great kings stupid brother".
+- As we cross the threshold closest to the throne, the Ironwright Hulks step closer to us, and the war priest and mage stand up. The king says to us and a cold, mechanical voice; "kneel".
+- I, seeing Thorian fall to his knees before the command spell is even fully said, decide to kneel, despite fully resisting the spell.
+- We all kneel, heeding the Command of the lord.
+- The lord looks at us and says "one may approach and to speak, and two may accompany the speaker to match my two guards". Thorian and Rhyston accompany our elected speaker, Brigid (gasp! We got the bard to be in charge of diplomacy!)
+- A zone of silence is cast upon all party members, except for Brigid.
+- "Woman with the flesh, speak now and tell me why you are here within my citadel"
+- "Great lord, we are here for items to aid us on our quest. We are not here for war."
+- Brigid doesn't really know what we're here for, and calls upon Atheris for help.
+- Atheris is summoned up to the throne, and Brigid joins Ingrid and I in the zone of silence.
+- Atheris speaks to the lord and says "we were told to seek out your people in search of an elemental core to power an airship."
+- "new female flesh person. You have come for an elemental core. That is the core of our society. Why should I provide such an essence to you? What can you provide us in exchange?"
+- Atheris thinks for a minute.
+- "I am uncertain my lord, as I am unaware of what your people may need."
+- The lord gets a bit testy with that answer; "so you have wasted my time and the time of my people to seek this audience, and you do not have an acceptable answer?"
+- Atheris replies; "we may be able to offer elemental material from the dungeon, or complete certain quests that you desire of us"
+- The lord replies; "elemental ores are the basis of elemental cores. An elemental essence is formed from one elemental ore of each element. So, if you could provide us with all elemental metals, we could provide you with an elemental essence. However, this would prove to be nigh impossible with your current transporation technology. If you could prove to me that you could construct a ship that would be powered by the core, I would be more willing to provide you with a core. Which you would then need to pay us back with each elemental metal"
+- The lord then also requests us to hunt down and slay the Dark Necroficer. We are given a two month window to complete this quest. Either group may accomplish this quest.
+- Atheris accepts this quest.
+- The Lord also requests that we deal with the noise in the forest to the north (the tree war).
+- Once the lord's discussion is finished, the zones of silence are lifted. "If you have nothing left to discuss, then you are all dismissed." "Oh, and last thing", the lord finishes, "I am sorry about your friend".
+- As our items pop out, they are upgraded one level of rarity. So, I get one rare amulet, one rare orb, a legendary ring, an uncommon shield, and an uncommon dagger.
+- Due to the special circumstanes around how Aurora dies, all of her stuff stayed behind!
+- We make it home safely!
