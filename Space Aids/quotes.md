@@ -12,3 +12,4 @@
 - Thane honours my wish to finish my dual with the troll hand (which has been onging this entire combat). Rhyston, doesn't care and moonbeams it.
 - We all manage to live the five troll combat!
 - I have died five times. How do you think I'm doing? - Rocky (Thorian's polar bear mount), Session 17, June 05, 2026
+- "Y'know, I already have one person in this party trying to kill me. Please try to keep your head attached so I don't need to remove it for you" - Thane, to Atheris after she got charmed. Session 19, June 19, 2026.

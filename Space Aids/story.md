@@ -582,3 +582,56 @@
 - As our items pop out, they are upgraded one level of rarity. So, I get one rare amulet, one rare orb, a legendary ring, an uncommon shield, and an uncommon dagger.
 - Due to the special circumstanes around how Aurora dies, all of her stuff stayed behind!
 - We make it home safely!
+
+## Session 19, June 19, 2026
+
+- Technically today is wednesday cause stuff happened then. Wednesday team was summoning their new party memeber, when all of a sudden women starting biting their husbands.
+- HootHoot (Rhyston's owl familiar) refuses to get off of Rhyston's shoulder, and is (visibly) shivering in fear.
+- We see men running out of their houses, running towards us. We then hear them say "oh god, oh god, help us", followed by the sounds of hearing people get their hearts ripped out of their body.
+- Thane looks at the running men and says "you should've gotten lube. It would've helped."
+- So, these korean nine tailed foxes have a 15 foot melee range...
+- Also they're resistant to slashing damage.. and bludgeoning damage..
+- I miss twice, with both my ray of frost and my spiritual weapon strike.
+- Thorian succeeds his triple topple attempts!
+- Rhyston wildshapes into a tiger and slays one of the creatures. Then attacks the ground for some extra flair!
+- Thorian says "I'm surrounded by hurt women"
+- Brigid moonbeam's another one to death.
+- Rhyston claws yet another to death!
+- All the civilians were killed sadly.
+- Atheris gets charmed, and then Brigid gets her heart ripped out. Also I get knocked unconscious.
+- Atheris Silver Lance's Thane, Thorian, and I, and then recovers from the charm.
+- Thorian brings me back to life with 15 lay on hands!
+- There's a moment of group hate for french people.
+- Angela develops a fear of Thane.
+- Aaaaand then Angela gets her heart ripped out and dies.
+- Rhyston also gets his heart ripped out and dies.
+- Thorian remembers that these things that have killed half the party are children. That only wakes up when the grandmother wakes up. The grandmother that's 8 times more powerful than them.
+- Thorian goes on a bit of a rampage and crits one of them killing it outright, and half killing another one.
+- Thorian _also_ gets his heart ripped out.
+- Thane rips out the enemy's heart out of vengeance.
+- Thane and Atheris have a bit of.. not quite heart-to-heart where Atheris is terrified of the upcoming rest of combat and Thane shows his lack of empathy towards the rest of the party, calling us dead ones "meat shields at best".
+- Their conversation gets interrupted by some screams, at which point Thane gets all excited again at the prospect of killing things.
+- Atheris opens a door and is greeted by a triple whipping of tails. Thane berates Atheris for 'taking all the fun' away from him.
+- Atheris simply points into the inside of the door and says 'Thane, kill', very much in the vibes of 'hulk, smash'. Thane gets all uppity and excited and goes "ooh, things to kill!".
+- Thane revels in the bloodshed and killing.
+- Thane soaks 71 damage and still has around half HP. His grin and enjoyment in the bloodshed is making the enemies scared.
+- Thane, upon getting healed almost back to full HP by Atheris, screams out for MOAR BLOOD! And gets a nat 1 and hits Atheris.
+- Thane soaks a nat 20 heart ripping out dealing 51 damage. He's still up. (with 21 hp left).
+- Atheris heals Thane right back up, giving 31 hp.
+- The fight rages on as Thane and Atheris slowly whitle down the enemies. Atheris chugs a kronk kronk potion of chaos and gains some HP, as well as some other affects.
+- Thane gets brought back to almost full HP, sitting pretty at 100/111 now.
+- Thane blocks the door and smiles at the fox lady and goes "now, if I remember correctly, you were trying to rip the heart out of my body, right?" She hisses. "Well then" Thane says, "let's see if you bleed the same way as your sisters?"
+- Atheris quaff's another kronk kronk potion and feels unlucky. (the overwhelming feeling that everything will go wrong)
+- Thane and Atheris manage to finish off that trio of fox ladies.
+- Atheris opens another door, just to be whipped with three tails. Again.
+- Atheris downs another kronk kronk potion, and suddenly views Thane as a dangerous enemy. And a bunch of other stuff.
+- While Atheris views Thane as an enemy, Thane is magically compelled to think that Atheris is extremely trustworthy, regardless of whatever action she takes.
+- Thane absolutely destroys one of the new trio of fox ladies with a nat 20.
+- Atheris finally goes down and gets her heart ripped out. Thane decides to go down swinging in a blaze of glory.
+- Thane finishes off that trio, and knocks on a door and says in an italian accent "yes-a hello, it's ~a pizza delivery". He hears a male voice from inside, "what's pizza?".
+- "Are you OK?" Thane says, "yes?". "Open the door!". "I can't, I'm in the kitchen with a broken leg." (this text rendition does NOT do the conversation justice lol).
+- "Thane knocks on the other door; "Did YOU order the pizza?". "No, go away, I'm boarding up the house, there are evil women outside". "Oh them? I've killed most of them." Thane replies.
+- Thane is then convinced to open the door, but stands to the side, so he only takes 2 attacks instead of 3.
+- At this point, the three behind the other door also burst out and the dogpile onto Thane, with a barrage of 6 tails. Thane gets all excited and goes down in a blaze of glory. And he lives with 2 hp! (lives through the tail whips at least). He then gets his heart ripped out.
+- As he goes down, he yells "yip-e kai mother -", and swings his sword in a circle to at least try to leave a scar on them.
+- And with that TPK, session ends.
