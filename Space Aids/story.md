@@ -635,3 +635,43 @@
 - At this point, the three behind the other door also burst out and the dogpile onto Thane, with a barrage of 6 tails. Thane gets all excited and goes down in a blaze of glory. And he lives with 2 hp! (lives through the tail whips at least). He then gets his heart ripped out.
 - As he goes down, he yells "yip-e kai mother -", and swings his sword in a circle to at least try to leave a scar on them.
 - And with that TPK, session ends.
+
+## Session 20, June 26, 2026
+
+- After the disaster of last session, the bastion has a pall of gloom over it.
+- A lot of NPCs died, including many of the guards and nobility, including the king.
+- At this moment, there are only 13 mages left who can summon more players.
+- As we get summoned, we see a great deamon thingy (it basically looks like cthulhu), and it inflicts madness on us.
+- As I get summoned, due to cards of chaos, all the magical protections surrounding the bastion disappear. Also, all the archmages disappeared in the incident last week, so uhh, that prismatic wall ain't coming back.
+- The mages, after watching half of their companions die in this summoning, guide us new summoned heroes to our houses. And then they hear knocking on the gate, and see an orc there. And they go "eh, screw it" and open up the gate to let the orc in (orc is one of the players).
+- As the mage walks away, he explains in a very "I'm over it" voice, he says "oh yeah, you need to like, go out on a quest every friday. I'm sure one of the.. dead people have a map of the world or something. Guild hall is over that way.. ugh."
+- Also, I deleted the S rank wood from the world as part of me crashing down with such magical force (another card of chaos)
+- We step out of the bastion and we see the whole forest in motion to the north. We also see a young forest tatzelwyrm that got evicted from the forest due to the forest war directly to the south.
+- Also the bastion is just, surrounded on all sides by creatures.
+- We stop by the health potion vending machine for some supplies. (Also cause I had 20/71 hp)
+- We venture east, to fight some Mahaha's. An elder mahaha and ancient mahaha.
+- Urunaugh gets teleported to the astral plane thanks to my wild magic, and stares Cthulhu in the eyes fearlessly (nat 20 on the wis save for a total of 35)
+- My wild magic causes SO much chaos. By the time we kill the elder, we've casted 6 extra spells for free.
+- Also, Rushen turns into a cactus.
+- Also, my wild magic has caused healing affects twice, and both times they brought people back up from being downed.
+- Urunaugh reappears from the astral plane! And seemingly more powerful than before! Cthulhu, who was chasing Urunaugh, encountered them when they got sent to the astral plane. Urunaugh flipped off Cthulhu, and Cthulhu was impressed, and became their patron, and so they got a free level in warlock.Oh, and hot pink irises.
+- Urunaugh then joins Rushen in cactus life.
+- Cero joins the cactus folk.
+- Rushen becomes terrified of Wilson. Who's unconscious.
+- _Everyone_ (except Sable) goes down as the Ancient Mahaha screeches one last screech before going down.
+- Rushen's skin turns blue.
+- Wild magic is causing SO much chaos.
+- Like, uncontrollable amounts of chaos. Two people rolled that they need to roll on the wild magic for the next ten turns. And then it got refreshed for BOTH of them when they were down to like, two rolls left.
+- We get two back-to-back nat 20s on death sving throws, bringing two people back to life! (and I had been at 2 fails when I got this second nat 20).
+- Everyone is stable, but we still have like, 12 more wild magic rolls to get through.
+- Cero grows a long neon pink beard made of feathers.
+- Wild magic continues to cause hilarity.
+- Rushen (and one person within 5 feet) constantly hears Baby Shark playing on repeat.
+- Cero gets taken to the astral plane where Cthulhu has some words with Cero.
+- A unicorn appears next to (unconscious) Cero and is judging him. _heavilly_.
+- The unicorn walks over to Elowen and casts cure wounds. The wild magic influences the unicorn. Its chin gets sharper as it becomes a chad.
+- Rushen _also_ gets pulled into the astral plane for some words with Cthulhu.
+- Rushen, Urunaugh, and Cero all have taken Cthulhu as their patron.
+- The unicorn continues to cast cure wounds. Causing MORE wild magic rolls!
+- Rushen gets a nice _blue feathered_ beard! It goes well with their blue skin!
+- There's one more magical explosion from the unicorn healing people, and Urunaugh and Sable went unconscious. Urunaugh died.
